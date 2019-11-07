@@ -1,6 +1,8 @@
-# Building 300#
+---
+layout: base
+---
 
-## Chapter 1: The Building ##
+# Chapter 1: The Building #
 
 No road or path led her to Building 300. There were no roads and no paths then, just the broken, faded outlines of them. Just her feet tromping through the brush, the weedy grasses and plants like brushes that only painted brown. Even now, huddled in Building 300 she could hear the crunch and pad of her steps, so many steps that took her from here to there.
 
@@ -66,7 +68,7 @@ Back at the building, she wrenched open the door again and entered the still, si
 
 She sprinkled the leaves from the bag on the ground, crouched down to assemble them into a pile. She tore apart the trash bag too to provide more cover and keep in more heat. She hoped these arrangements would keep the building feeling like a viable shelter for a while longer.
 
-## Chapter 2: 10-11-12-13 ##
+# Chapter 2: 10-11-12-13 #
 
 Don't stay too long outside. Avoid exposure. Keep low. Don't let them hear you. Find somewhere safe.
 
