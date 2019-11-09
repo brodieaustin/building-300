@@ -129,3 +129,59 @@ The car bobbed front to back as the energy built up from the fall dissipated. Th
 Rather than run towards it, her body propelled her away from the scene. She crashed back down the path towards the water and towards Building 300. She ran past Marker 13, past Marker 12, past Marker 11. And there was Building 300, sitting between 11 and 10. There it sat slightly pivoted on the shorefront to greet her, solid and sure, uncrumpled and fixed there to the ground.
 
 A feeling of relief came over her as she shoved the door closed and huddled on the floor. She didn't cry but sat there clutching her arms wrapped around her legs. She used her silence to keep the image of the crunched damaged car at bay. Used her silence to erase the sounds that someone else's voice had made in a moment of fear and desperation, as if the silence would erase those things that had conditioned the human voice to speak terror and fear.
+
+Chapter 3: Ice
+
+Snow had been dusting the ground for weeks now, off and on. Never accumulating, just creating mottled patterns of white, grey, and brown. The air was cold and wind was picking up. Her clothing options were limited, in her panicked moments of fleeing chaos and destruction she hadn't had an opportunity to think critically about what she would need once winter came.
+
+A couple of layers of shirts, a sweatshirt, and a light jacket was all she had now to insulate herself from the increasingly intense cold. And until a few days ago, the cold had been somewhat invigorating. She was enjoying her morning walks and the biting feeling of the cold against her cheeks.
+
+Sometimes, her fingers would drain to white and look like shriveled husks of what fingers were supposed to resemble. She would have to huff and puff on them to warm them up. And her right big toe had a habit of getting cold too, but she was still wearing simple, unstructured canvas shoes. These were minor inconveniences to the simple pleasure, the surprising delight that she was able to find in the cold.
+
+But in the last day or two, the cold was becoming more intense, more bitter. There was a heavy, swollen purple tint to the clouds. A previous version of her from a previous life would have checked the weather report, and confirmed that the wind and wet in the air meant snow. Serious snow.
+
+As the air got colder, she found that she couldn't spend as much time outside, and had to huddle more and more inside the building. Whereas before she would have taken comfort in being sheltered inside, she noticed that now it started to wear on her. She was feeling irritable and impatient. Confinement felt more like imprisonment than convalescence.
+
+Maybe it was time for her half-life in Building 300 to start to resemble something more like a homestead. Maybe she needed to form something that looked more like a life, at least in whatever form lives could take in the world as it was now.
+
+This meant that she would need supplies, more supplies and better supplies. This would mean venturing further away from the building than she had before. She had a vague memory from days she wandered her way towards the building that there had been a housing development a bit to the south.
+
+At the time, each door and window in those once perfectly symmetrical domestic boxes seemed like openings to any number of potential terrors. So she had stumbled her way as quickly as she could past them, trying to be furtive and cautious in her panicked state.
+
+She didn't venture out much at night, but now that night was arriving so much earlier, nights seemed to outweigh days suddenly. Venturing through houses in the day could be risky. She didn't want anyone seeing her breaking and entering and cornering her in one. Much better to slip in and out and avoid being seen altogether.
+
+So that evening she prepared to find the houses again and collect proper winter gear to get her through these cold days and weeks to come. She emptied the small backpack that had once been a school girls that she picked up from a temporary shelter. The girl and her family were nowhere to be found. So she evacuated the childish things that had been packed inside and shoved her few extra pieces of clothing and a bit of food and set off.
+
+In the dim light of the building, the backpack still glimmered and glowed with glow-in-the-dark gems and a printed filigree that must have resembled an enchanted gate that had unlocked some princesses' fate in a story she wasn't familiar with.
+
+Before she set out, she took a small pen knife and pried off the glowing gems. She used the knife's edge to scratch away that glowing filigree. All that was left were the worn, rubbed out paths that had once delighted a child on the first day of school. She ate a few bites of an old granola bar to fend off hunger and set off down the beach.
+
+She usually didn't go much further south than marker 10, but tonight she did. The trail disappeared, leaving her to scramble over rocks to pick her way along. Doing this in the dark didn't seem like a particularly good idea to her. The water seemed like an impenetrable wall in the dark.
+
+The rocks gave way to sliver of a sand beach, much of which had been eroded away, but there was enough there to walk along. The sand was wet, but still gave each step a pleasant, springy cushioned feel. The shoreline was flattening out now, she wouldn't have to scramble up now.
+
+Up ahead she could see mound of rocks that caused the water's waves the crash and foam. A small horseshoe like inlet and been created by two rough piers of rocks. They were weedy and in disarray now.
+
+But the trees had been cleared in this area. Off to the right just up a slight incline was a street and the fronts of those houses she had seen so many weeks or months ago. A small service road led to a small concrete building, less bunker like than her Building 300, but equally utilitarian and seemingly deserted.
+
+She scrambled along the road to the building and ducked behind it. After her flutter of movement, she couldn't detect anything in the housing stirring. But she waited for a long time to be sure. She listened carefully for any voices, any sounds that humans make even when their being still and silent. But she didn't hear anything and didn't see anything. There was no evidence that anyone was laying in wait for her, ready to spring a trap. These were just empty, deserted buildings.
+
+She adjusted her backpack and readied herself to sprint to the nearest house. She sprinted across the weedy, rough field, bound over the cracked pavement of the street, up the driveway, and onto the house's front porch. She crouched down by the front door. She reached up to try the lock, but the door was open.
+
+The door creaked a bit as she pushed through it. Inside, she found herself standing in a typically open floor plan house. A staircase in front of her leading to a second story, a family room with furniture in disarray, a broken dining room table. Clothes and belongings were strewn about everywhere. It was a common a scene now as the once well kept yard and budget furniture store furniture had once been.
+
+She inspected the kitchen first, figuring that would give her a good idea of how well provisioned this house might be. What she found didn't give her much hope. The cabinets were all thrown open, several were just barely hanging from their hinges. This house had been picked over well and thoroughly.
+
+Based on these findings, she decided to move on to another house. Looking out the kitchen's back window, she was looking down a stretch of backyards. these houses were all arranged perpendicularly to the house she stood in. She didn't want to move inland too far from the shoreline. Staying close to the shore and the water, gave her some comfort. She considered the beach to be her path for escape if anything bad happened.
+
+She stepped through the broken glass of the back sliding door and down the small wooden deck. She inspected the houses to each side, looking for a house that didn't have a broken back door. It look three houses before she found one that looked promising.
+
+The only problem now was actually getting inside. The back door was locked and she couldn't find any loose windows. She crept around the to front and same problem. Locked up tight.
+
+She went around to the back. Under the elevated wooden deck were large, smooth stones. Maybe she could use one to break the backdoor's glass. She crawled underneath the deck until she found a stone that seemed sufficiently hefty.
+
+She looked around furtively again, a slight feeling of guilt overcame her as she hoisted the rock over her head. But just as soon as the feeling came, it left as she flung the rock at the door. The glass shattered with a loud pop, but there was an opening now for her to get through.
+
+This kitchen was much more promising. She opened a few cabinets and found a few cans, crackers, and meal mixes. Nothing was expired, no cans were bulging or mishapen. She almost wished she had a bigger backpack to bring more items. She rummaged around underneath the sink and found a shopping back. She didn't want to load herself down too much, but took enough to get her through a month or two with little worry about going hungry.
+
+Now it was time to look for clothing, blankets, anything to help keep her warm.
