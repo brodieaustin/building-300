@@ -130,7 +130,7 @@ Rather than run towards it, her body propelled her away from the scene. She cras
 
 A feeling of relief came over her as she shoved the door closed and huddled on the floor. She didn't cry but sat there clutching her arms wrapped around her legs. She used her silence to keep the image of the crunched damaged car at bay. Used her silence to erase the sounds that someone else's voice had made in a moment of fear and desperation, as if the silence would erase those things that had conditioned the human voice to speak terror and fear.
 
-Chapter 3: Ice
+# Chapter 3: Ice #
 
 Snow had been dusting the ground for weeks now, off and on. Never accumulating, just creating mottled patterns of white, grey, and brown. The air was cold and wind was picking up. Her clothing options were limited, in her panicked moments of fleeing chaos and destruction she hadn't had an opportunity to think critically about what she would need once winter came.
 
@@ -184,4 +184,42 @@ She looked around furtively again, a slight feeling of guilt overcame her as she
 
 This kitchen was much more promising. She opened a few cabinets and found a few cans, crackers, and meal mixes. Nothing was expired, no cans were bulging or mishapen. She almost wished she had a bigger backpack to bring more items. She rummaged around underneath the sink and found a shopping back. She didn't want to load herself down too much, but took enough to get her through a month or two with little worry about going hungry.
 
-Now it was time to look for clothing, blankets, anything to help keep her warm.
+Now it was time to look for clothing, blankets, anything to help keep her warm. She moved up the basic stairs lined with basic carpet that even in the dark seemed to have a slightly plastic shine it.
+
+At the top of the stairs three bedrooms and a bathroom arranged themselves around the landing. She picked the door staight ahead and found herself in the remains of a master suite. The large king sized mattress had slid off the box spring. Sheets and clothes were in a tangle on the floor. Two doors in this room led to a large closet and a bathroom.
+
+She stepped into the bathroom. Her hand instinctively reached to flip the light switch next to the metal and class medicine cabinet. The switch clicked up and down several times, as if moving by itself, doing nothing. She realized what she was doing and looked around her, only to find herself looking in the mirror.
+
+A skylight overhead let in some light from the night sky. Her face floated in the mirror, ghostly and incomplete. She could hardly bear to look at it eye to eye, so her eyes just traced her reflection's edges. She hardly recognized the person looking back at her. Hard eyes, gaunt cheeks. Hair greasy and plastered in so many directions under the smokey gray beanie she wore.
+
+Behind her, a large deep tub invited her into its curved depths. She stepped away from her reflection and into the tub. The plastic thumped loudly as she got into the tub. She lay back against the gentle sloped side and rested her arm on the contoured cutouts on each side.
+
+The tub still smelled slightly of tub cleaner and shampoo. Wax from a burned out candle was stuck in one corner. She rested there for a moment, taking in the silence of the house. Not quite transported to some scene of domestic bliss and comfort, but peering at the boundaries of this other world that still existing here in this suburban house's master suite.
+
+The reverie passed as a chill passed over her. She examined the closet, but it was much too dark to tell what was inside of it. So, she started pulling out what remained. Shoes boxes, a small dresser of underwear and socks. Shirts, pants, a few sweaters. A heavy blanket.
+
+With everything piled up, she picked through everything. She pulled out a heavier pair of shoes, socks that weren't threadbare and full of holes. She rolled up the blanket so she could sling it around her.
+
+Still no coats to be found here, so she headed back downstairs to the coat closet by the front door. The only coat left hanging there was long blue wool coat. It had a military look to it. It was a few sizes too big and hung down nearly to her ankles. But it fit well enough to not fall off of her completely. And its thick layers would keep her warm.
+
+She was ready to leave, but before she did, she lingered in the family room for a while longer. She shoved aside a pile of old mail and magazines and sat on the sofa that had once been lined up properly with the walls and fireplace that formed the room's focal point. Not the sofa was pushed at an odd angle and didn't frame anything in the space.
+
+She sat there, just breathing, just pausing, much as she had in the bathroom upstairs. She rifled through the pile she had just moved and pulled out a cooking magazine from the pile. Leaning back into the sofa, we flipped through the glossy pages full of deserts and platters or luxuriously roasted meats.
+
+Strangely the food didn't make her salivate or hunger for it. The dishes, arranged with flowers and fine linens and flatware, seemed like something from another world. It was hard to grasp that people had once eaten like this, that food had once looked like this.
+
+The food on those pages, seemed more like a piece of art. She felt no more moved to eat it than she would have a few brush strokes of paint on a canvas. There was a visual richness that drew her attention and made her look, but her body didn't respond to it with the repertoire of simple responses it was now used to using.
+
+The attraction broke and she tossed the magazine back on the pile. It slide unceremoniously to the floor and rested there with other junk that had had been left behind. It was time to head back, to leave this shell of a shelter and return to Building 300 where she would sleep a bit warmer than before.
+
+She crept back through the backyards of the houses, a little less quickly and quietly as before. She was feeling a bit more relaxed now and her new hear slowed her down and made more sound as she went along. She still sprinted though from the first house she entered across the street and the empty field.
+
+She made it back to the blue roofed building and paused there, catching her breath.  As she stood there, she scanned the shoreline, the beach with the two piers of stone pilings. The beach looked different to her now. The sand seemed more tossed up and disturbed, but she couldn't be quite sure.
+
+She proceeded slowly and cautiously down the short road that led from the building to the beach. The sand did in fact look different, but maybe she hadn't noticed how much she had disturbed things when she passed through there earlier.
+
+But as she stopped and looked more closely, she realized that she couldn't have made the beach look as different as it did. In fact, the beach looked different because there were footprints criss-crossing over it that weren't her's.
+
+# Chapter 4: Prism #
+
+There were footprints on the beach that weren't hers and they were heading in the direction of Building 300, her building 300. But she noticed that the footsteps didn't march in that direction directly. The footprints seemed to be spread out in a fairly random way, as if someone had been stumbling about on the sand before heading to towards her shelter.
