@@ -196,9 +196,9 @@ Behind her, a large deep tub invited her into its curved depths. She stepped awa
 
 The tub still smelled slightly of tub cleaner and shampoo. Wax from a burned out candle was stuck in one corner. She rested there for a moment, taking in the silence of the house. Not quite transported to some scene of domestic bliss and comfort, but peering at the boundaries of this other world that still existing here in this suburban house's master suite.
 
-The reverie passed as a chill passed over her. She examined the closet, but it was much too dark to tell what was inside of it. So, she started pulling out what remained. Shoes boxes, a small dresser of underwear and socks. Shirts, pants, a few sweaters. A heavy blanket.
+The reverie passed as a chill passed over her. She climbed out of the tub and examined the medicine cabinet and cabinets under the sinks. What little medicine and supplies were there, she tipped into her bag. She examined the closet, but it was much too dark to tell what was inside of it. So, she started pulling out what remained. Shoes boxes, a small dresser of underwear and socks. Shirts, pants, a few sweaters. Several heavy blankets.
 
-With everything piled up, she picked through everything. She pulled out a heavier pair of shoes, socks that weren't threadbare and full of holes. She rolled up the blanket so she could sling it around her.
+With everything piled up, she picked through everything. She pulled out a heavier pair of shoes, socks that weren't threadbare and full of holes. She rolled up the blankets so she could sling them around her.
 
 Still no coats to be found here, so she headed back downstairs to the coat closet by the front door. The only coat left hanging there was long blue wool coat. It had a military look to it. It was a few sizes too big and hung down nearly to her ankles. But it fit well enough to not fall off of her completely. And its thick layers would keep her warm.
 
@@ -222,4 +222,36 @@ But as she stopped and looked more closely, she realized that she couldn't have 
 
 # Chapter 4: Prism #
 
-There were footprints on the beach that weren't hers and they were heading in the direction of Building 300, her building 300. But she noticed that the footsteps didn't march in that direction directly. The footprints seemed to be spread out in a fairly random way, as if someone had been stumbling about on the sand before heading to towards her shelter.
+There were footprints on the beach that weren't hers and they were heading in the direction of Building 300, her Building 300. But she noticed that the footsteps didn't march in that direction directly. The footprints seemed to be spread out in a fairly random way, as if someone had been stumbling about on the sand before heading to towards her shelter.
+
+The footsteps she followed continued to be irregular. These weren't the confident strides of a healthy person. The top of the building was just in her view when she saw someone, a man, slumped against a tall striped column, shaped like an obselisk that had been installed on the shorefront at some point. Green, blue, and tan stripes ran up and down the length of the obelisk. It was a strange object to have standing solitary on the shore the way it was.
+
+Maybe it was the subtle natural shades of the stripes, or the fact that the obelisk's purpose was so obscure, but she had not really thought much about their presence since her first week or so living in Building 300. At the time, she had wondered before if it had been some kind of measuring device, perhaps part of the same warning system as the numbered markers. Maybe boats had used the markers and obelisks to determine if the tides were working properly.
+
+Now, though, the stripes and marks took measure of the man who was slumped against the obelisk. She approached him cautiously. He didn't stir or otherwise acknowledge her presence. He was soaking wet from head to foot. Apparently, he had reached the beach from the water. She hadn't seen or heard any boats since she started living in the building. Mysteries seem to layer themselves upon this figure.
+
+When she was within a few steps of the man, he seemed about to awake, but slumped off to the left instead. She instinctively rushed forward to help him up. He was heavy, much larger than she was. Older too. She realized now that his face was wrinkled, bearded, and gaunt. Much like her, he had layers of clothes on, topped by a double breasted rain coat. His hair had grown long and was plastered to his face.
+
+She tried to shake him awake, but he wouldn't open his eyes. She could tell that he was still breathing, still alive, just passed out. He was starting to shiver though. She realized too just how cold it was. Her hands, now damp from his clothes, were starting to freeze and feel brittle.
+
+She knew she had to get him inside, but needed to unburden herself of her supplies first. She wrenched open the door and put her bag and blankets inside. She also threw off her overcoat, not wanting it to become soaked through. She dashed back to the man and crouched down next to him.
+
+She threw his limp arm over her shoulders and strained to lift him up. But the strain was too much. The best she could do was drag him to the building. It wasn't far and he wouldn't be any worse for wear. So she pushed him back down to the ground, this time he fell to his right side. She grabbed both of his wrists and started to drag him.
+
+It took several fits and starts to get him inside the building. Once inside, she placed him on the opposite side of where she normally slept. Even in the midst of helping this man, she knew she was taking a risk bringing him into her space. So she would leave some distance between them.
+
+Once she had him positioned, she took a towel that she had hanging up to dry. It was harder than usual from the cold, but she was able to work it to the point that she could dry his face and hair. She tried to pat down his clothes as best as she could to dry him off.
+
+She considered making a fire to keep him warm, but decided that it would be too risky to draw attention to herself now, particularly since she had no idea where the man came from or if anyone was out looking to find him. So, she draped the towel over him and heaped up the leaves and branches she had used for her bedding over him.
+
+Back in her corner, she unrolled her blanket and huddled underneath it. She had a packet of airline pretzels in her pocket that was half eaten. She unrolled the split opening and started eating each salty, twisty pretzel fragment very deliberately. The pretzels gone, she drank a few sips of water from a crumpled up water bottle. She tried to stay awake as long as she could. But after an hour or so of sitting there, watching the man, he had not moved at all. She nodded off and fell asleep.
+
+She woke up to the man's muttering and crying out in his sleep. "Damn you, no. Not ever. Hands off. You won't... You won't..." He was thrashing about, but seemed to settle back down. She crawled over quietly to check on him. He was on his side. He had almost knocked all of the leaves off of him. She took one of the blankets she still had from the house and threw it over him.
+
+She looked up through a small grate above the door and could tell that day was beginning to break outside. The heavy darkness was giving way to light. Since it was still somewhat dark and she was already up, she decided to go outside and monitor the situation outside.
+
+In the morning's dusky dark, she scurried over to the large rocks near the building and crouched behind them. She surveyed the horizon, where the water and sky met in the distance in both directions. She still didn't see any boats. She couldn't hear anything in the distance that would indicate that danger was nearby, setting aside for the moment the question of whether or not danger had already been invited inside the building.
+
+For now, she shoved down that concern and let the need to provide help take over. She knew that she would need to build a fire to warm the man up and dry him off better. So, she headed back into the building.
+
+She had a small collection of firewood that she had been collecting and keeping inside to keep it dry. She mounded up some of the leaves that surroudned the man and made a little wooden structure around with twigs. She used a half empty clear green plastic cigaratte lighter to light the whole thing up.
