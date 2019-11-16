@@ -46,7 +46,7 @@ But she wanted to see what the sign was and what it pointed out. The sign stood 
 
 She hopped down from the outer ring and started pacing those in-between spaces. She followed different paths back and forth, sometimes changing direction, sometimes only taking the outer paths, sometimes only the inner ones.
 
-A rustle and a cracking of branches broke her out of her meditive maze. Without thought her body bolted down to the ground, whatever languid grace had built up in her body flattened out by fear. More crunching and crackign in the distance. Was it getting closer? She scooted through the sand and dirt, scraping the shelled particulate of the concrete benches as she went.
+A rustle and a cracking of branches broke her out of her mediative maze. Without thought her body bolted down to the ground, whatever languid grace had built up in her body flattened out by fear. More crunching and cracking in the distance. Was it getting closer? She scooted through the sand and dirt, scraping the shelled particulate of the concrete benches as she went.
 
 She peered out from the edge of the outer ring of benches. She took deep breaths and steadied her heart. Silent breaths, someone had taught her. Some nameless gone person who had helped her survived. All that was left was the way to still yourself to protect yourself. Her body remembered even if her mind did not want to linger on any particular faces.
 
@@ -78,15 +78,71 @@ Most nights she was too tired to dream, too exhausted from being to let even the
 
 Her track was numbered for her and she kept pace between the markers: 10-11-12-13. She counted her steps, her breaths, her swinging arms, between each marker. The markers were high up on posts, white background, red circles around large black numbers. They faced out to the water. Clearly they had meant to communicate something to people on the water, not on the land. But there was no one on the water now to communicate with.
 
-So they formed the place markers of the shoreline place she lived. They marked out the measured steps that separated her from her ease and her fear.
+So they formed the place markers of the shoreline place she lived. They marked out the measured steps that separated her from her ease and her fear. The markers were the countdown to and from Building 300, and measured how far she was willing to leave behind a place that seemed like home and how long it would take to return.
+
+There were so many other strange remnants left behind on the shoreline. Pipes and culverts and signs. So many communications that the other time, those other times. So much of what remained must have been there to move water from here to there, to drain away things that were not supposed to be there, to divert floods and debris to places where they could lay fallow and remain.
+
+So much engineering had gone into making this place, this one little patch of shoreline into a place people would want to visit. She marveled at the effort. It was almost impossible to imagine that people had once shouldered into such difficult feats now. All she could do these days was trace her paths, mark her markers.
+
+She barely worked at keeping hunger away. She had managed to live with a gnawing knot in her stomach for so long. She had scraps of food, bits of memories of when food was pretty and packaged. She managed to forage for in the woods too, collecting berries, mushroom, and whatever leafy herb-like things she could scrounge.
+
+This wasn't forest feasting by any means. She was now connected to primordial history of gathering, of subsistence living. Hers was the human body that had evolved to survive hunger, to survive, against all odds. Her mind wasn't one to contemplate this evolutionary urge to be, to inhabit, no matter what.
+
+Here she was. Whatever she was now. That things was here, living in Building 300, marking days into the paces between 10-11-12-13.
 
 Some days, she would pay a visit to particular markers. When the sun was warm and peering through the clouds, she would sit on the piled rocks that the waves crashed against by marker 10. Marker 12 stood by the staircase that was her connection to the world above. Marker 11 stood near the remains of one of the metal walls that peered up out of the water like an ancient animal's rusted spine. Marker 13 stood near a small bridge and a short curved wall. On the other side of the wall was a stony beach.
 
 She rarely went past Marker 13, had an almost superstitious fear of what was beyond it. Her world and her days since she found Building 300 were marked by those markers and numbered by those numbers.
 
-Since she started living there, she hadn't given much thought to what was past the marker and past the stone beach. There only seemed to be the remains of the path led into winding ravine that was filled with downed trees and debris. A dark tangle of things that the world felled and destroyed. Had she been the type to be swept away by metaphor, everything past marker 13 would have lingered in her with the markers that meaning leave on things.
+But she did like to throw stones in the water. She would hop over the curved wall near marker 13 and crouch close to the lapping line of water. One after another, her hand one grope for a round, smoothed out stone, and lob it into the water.
 
-Instead she was content to trace her path, to carve out the spaces in her days with those very specific places in those very specific ways. But this day she walked to marker 13 and used the remnants of the curved wall as a balance beam and paced back and forth with her arms out. She bobbed back and forth. Her undernourished body didn't have the grace that one better fed and less overwhelmed by stress might have been.
+She didn't throw them far, didn't try to skip the flat ones. There was no need to impress anyone, since no one was here. With each tossed rock, though, she took great satisfaction in the deep, resonant sound the stone made, a rich thump. And of course the ripples
+
+Her eyes would trace out the concentric lines from the ripples, follow them until they ebbed out into the flat surface of the water, or were wiped away by more waves.
+
+Today, like many days before, she was lobbing rocks when something bright and bobbing in the water caught her eye. It was further up the shore than she was used to going, further away from Marker 13, but she couldn't stop watching it.
+
+She looked around cautiously, as if concerned that some onlooker might observe her unusual behavior. Of course there was only the shake of the grasses and trees and pound of the waves around her.
+
+So she ventured further up the beach. Doing so required her to hop along large chunks of concrete that seemingly that been deposited there many years ago. At the edges of these large chunks, twisted, rusted pieces of rebar flayed out. She almost caught her foot in a web of rebar on one piece, but manage to regain her footing before she did.
+
+The bright thing turned out to be something orange as she got closer. When it was finally fully visible to her, she realized that it was a life vest that had gotten tangled in a bent piece of a metal barrier that broke waves that crashed over it.
+
+For some reason, she desperately wanted to retrieve the vest, even though it was just out of reach. There was a small enough chunk of concrete nearby that she thought she could nudge close enough to make a bridge or platform to reach it. She pushed and pulled at the chunk of concrete, finally sitting down and pushing at it that way.
+
+She inched across the concrete slab on her knees and reach out to grab the vest. Water sloshed up on the slab, getting her knees wet, but she wasn't drenched. With one final stretch, she was able to unhook the life vest from the twist of metal that had caught it.
+
+The vest was surprisingly new looking, but she realized the fabric was ripped on the lower left side. She turned it to look more closely, realizing that in fact there was a hole torn through it, an almost perfect finger sized hole. She turned her forefinger through it and then looked inside the vest.
+
+Her finger poked through the hole into a smear of a dark red stain that radiated from the hole and ran down. She dropped the vest and backed away form it. The waves caught the vest, trying to reclaim for the water what had been meant for the water originally.
+
+She sped back along the beach and quickly as she could, staying in a low animal crouch, darting like a nervous rodent from slab to slab. Her ankles turned violently as she recklessly stepped through the stone beach.
+
+She turned back again and again, hoping the vest would be out of sight. But there it was. The water was refusing to erase it from sight. But kept pulling it in and pushing it back into view. She wanted it to disappear and regretted that she had been so entranced by it before. She could still feel the vests's threads and foam core around her finger.
+
+She walked along the dirt path back to the low wall, pulling at her finger, as if trying to rub off the haunting sensation of that hole and the vest, and the smear of blood that stained the inside. She was so caught up in this self-cleansing that she almost didn't hear a low rumble in the distance, echoing over the expanse of water.
+
+She turned to face the water and could hear the sound more clearly. The sound was a steady, mechanical chug. Definitely not natural. Probably an engine of some kind, however improbably that might be. She hopped over the the low wall, crouching there for defense and protection.
+
+She squinted into the day's dull light, trying to look as deep into the water's expanse, as if trying to peel apart the horizon line to reveal what was hidden there. Her eyes weren't too good and couldn't see so clearly. She did have a broken pair of glasses in her vest pocket. There was only half of a cracked lense in the right eye.
+
+Luckily, that was her dominant eye. She slipped on the glasses and could make out what was in the distance a bit better. There on the horizon line she could just make out the long, low outline of a boat, probably some kind of barge, seemlingly large. Very far away and not heading in her direction. It seemed intent on heading northwards, but where was it going? Where had it come from?
+
+This far away, growling boat wouldn't say. She did creep back onto the beach to see northwards more clearly. With the broken glasses on, she followed the shoreline as far as she could. The only thing she could make out, far in the distance, were the tops of three smokestacks that sat atop a building that even this far away seemed to by huge and hulking.
+
+At this distance, the building was nothing more than an abstraction of faint grey shapes. But it loomed. And in its looming seemed ominous, ominous because it beckoned, demanded to be seen on the shoreline.
+
+# Chapter 3: Arc of Nature #
+
+Since she started living there, she hadn't given much thought to what was past Marker 13. Now there seemed to be any number of ominous possibilities. She didn't venture that far to Marker 13 much now, as she tried to resist the pull of the factory or power plant or whatever the building was that stood there in the distance.
+
+She did hear engines from time to time. But with no rhyme of reason, with no particular pattern. Sometimes the sounds were there just for a moment and then gone. And then weeks passed and she didn't hear anything.
+
+Her curiosity got the better of her, so she ventured back in the direction of Marker 13. Besides the wall and the stone beach, there only seemed to be the remains of the path led into winding ravine that was filled with downed trees and debris. A dark tangle of things that the world felled and destroyed. Had she been the type to be swept away by metaphor, everything past marker 13 would have lingered in her with the markers that meaning leave on things.
+
+She climbed over the wall and observed teh building again. It just sat there and seemed much more inconsequential now. Just a shape that was there, worth very little consideration at all.
+
+She finally decided to turn back and return to her shoreline pacings, but decided to use the remnants of the curved wall as a balance beam and paced back and forth with her arms out. She bobbed back and forth. Her undernourished body didn't have the grace that one better fed and less overwhelmed by stress might have been.
 
 She started to grow tired of pacing. Her distraction started to give way to wandering thoughts, which usually was a sign she needed to change something about her scenery or her actions. She had to move and keep moving to keep her distraction up, keep it spinning like a millstone to wear away at the grist of thought and memory.
 
@@ -130,7 +186,7 @@ Rather than run towards it, her body propelled her away from the scene. She cras
 
 A feeling of relief came over her as she shoved the door closed and huddled on the floor. She didn't cry but sat there clutching her arms wrapped around her legs. She used her silence to keep the image of the crunched damaged car at bay. Used her silence to erase the sounds that someone else's voice had made in a moment of fear and desperation, as if the silence would erase those things that had conditioned the human voice to speak terror and fear.
 
-# Chapter 3: Ice #
+# Chapter 4: Ice #
 
 Snow had been dusting the ground for weeks now, off and on. Never accumulating, just creating mottled patterns of white, grey, and brown. The air was cold and wind was picking up. Her clothing options were limited, in her panicked moments of fleeing chaos and destruction she hadn't had an opportunity to think critically about what she would need once winter came.
 
@@ -220,7 +276,7 @@ She proceeded slowly and cautiously down the short road that led from the buildi
 
 But as she stopped and looked more closely, she realized that she couldn't have made the beach look as different as it did. In fact, the beach looked different because there were footprints criss-crossing over it that weren't her's.
 
-# Chapter 4: Prism #
+# Chapter 5: Prism #
 
 There were footprints on the beach that weren't hers and they were heading in the direction of Building 300, her Building 300. But she noticed that the footsteps didn't march in that direction directly. The footprints seemed to be spread out in a fairly random way, as if someone had been stumbling about on the sand before heading to towards her shelter.
 
@@ -280,7 +336,7 @@ The man sat back down in his spot. "If it's all the same to you, I'm feeling pre
 
 His joints creaked and popped as he sat back down. It didn't take long for him to fall back asleep.
 
-# Chapter 5: Mastery Reason #
+# Chapter 6: Mastery Reason #
 
 Snow was falling steadily, in an almost mathematically predictable swirl. The flakes were large and puffy, as if someone had been hurling slivers of white confetti from the sky. It was filling in gaps and cracks wherever it found them, giving everything around the building a smoothed out, contoured look to it. The snow was even starting to accumulate along the metal barriers that jutted out into the water, making them look less like bony ridges and more like puffy appendages, like cold-damaged fingers.
 
