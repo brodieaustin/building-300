@@ -84,7 +84,7 @@ Some days, she would pay a visit to particular markers. When the sun was warm an
 
 She rarely went past Marker 13, had an almost superstitious fear of what was beyond it. Her world and her days since she found Building 300 were marked by those markers and numbered by those numbers.
 
-Since she started living there, she hadn't given much thought to what was past the marker and past the stone beach. There only seemed to be the remains of the path led into winding ravine that was filled with downed trees and debris. A dark tangle of things that the world felled and destroyed. Had she been the type to be swept away by metphor, everything past marker 13 would have lingered in her with the markers that meaning leave on things.
+Since she started living there, she hadn't given much thought to what was past the marker and past the stone beach. There only seemed to be the remains of the path led into winding ravine that was filled with downed trees and debris. A dark tangle of things that the world felled and destroyed. Had she been the type to be swept away by metaphor, everything past marker 13 would have lingered in her with the markers that meaning leave on things.
 
 Instead she was content to trace her path, to carve out the spaces in her days with those very specific places in those very specific ways. But this day she walked to marker 13 and used the remnants of the curved wall as a balance beam and paced back and forth with her arms out. She bobbed back and forth. Her undernourished body didn't have the grace that one better fed and less overwhelmed by stress might have been.
 
@@ -252,6 +252,42 @@ She looked up through a small grate above the door and could tell that day was b
 
 In the morning's dusky dark, she scurried over to the large rocks near the building and crouched behind them. She surveyed the horizon, where the water and sky met in the distance in both directions. She still didn't see any boats. She couldn't hear anything in the distance that would indicate that danger was nearby, setting aside for the moment the question of whether or not danger had already been invited inside the building.
 
-For now, she shoved down that concern and let the need to provide help take over. She knew that she would need to build a fire to warm the man up and dry him off better. So, she headed back into the building.
+For now, she shoved down that concern and let the need to provide help take over. She knew that she would need to build a fire to warm the man up and dry him off better. So, she headed back into the building. She had a small collection of firewood that she had been collecting and keeping inside to keep it dry. She mounded up some of the leaves that surrounded the man and made a little wooden structure around with twigs. She used a half empty clear green plastic cigarette lighter to light the whole thing up.
 
-She had a small collection of firewood that she had been collecting and keeping inside to keep it dry. She mounded up some of the leaves that surroudned the man and made a little wooden structure around with twigs. She used a half empty clear green plastic cigaratte lighter to light the whole thing up.
+The wood was smokey but the building's vents drew enough out to keep her eyes from burning too badly. As the fire started to take hold and flicker, the building's wall pulsed with red and orange tones. As the fire grew and she fed more wood into it, the hard linear lines inside the building, and the remnants of pumps and machines, softened with shadows. The interior space began to resemble a cave, some primordial space where ancient peoples took refuge.
+
+Later in the day, the man begin to stir. He groaned as he started to sit up, but fell back down on his back. She went over to help him up, but in his stupefied daze he started waving her hand away, grumbling, "Get away...get."
+
+He dug his fingers into his closed eyes, rubbing them hard, as if trying to rub them out. With this eyes covered, he finally said in a more coherent voice, "Where am I?"
+
+When she didn't answer, he opened his eyes and said, "Hmm, not the boat. What is this place?" Then he noticed her, "Who are you?" She still didn't answer, only sat there looking at him. "Don't say much, do you? Not much to say these days, I guess. Help me up, huh..."
+
+She grabbed both of his hands and helped him, the leaves rustling around him as she did. He was on his feet but wobbling. "This place smells terrible. What is it?" He look around more, seemed to be noticing the old pumps and machinery, "Some kind of pump house. Where are we? Aww, why am I asking you? You're not going to tell are you?"
+
+She looked back him, just staying silent, watching as he seemed to come back online, to regain is awareness, his consciousness. She went to the door and shouldered it open. Cold air howled in through the doorway. It was snowing again outside.
+
+The man stumbled over to the door and peered out. The light seemed to be too much for me. He recoiled from it at first and then leaned the upper half of his body out of the door. "A beach. That's the lake. I'm still pretty wet. Did you fish me out of the water?" She shook her head and pointed back down the beach in the direction they came. "Must have washed up on shore. Well, no use going into that now, I guess." He closed the door. "This is a real 'look what the cat dragged in' kind of situation isn't it. But maybe we've both been dragged in here, depending on how you look at it."
+
+The man sat down by the fire, held his hands out to warm them. He would warm them, rub them briskly, and warm them some more. "How long have you been living here?" She shrugged. "I guess this is as a good a place as any to hunker down. Got any food? I'm starving..."
+
+She pointed over to box of food she had resupplied. "Slim pickins'. Nothing fancy here," he said. "But it beats camp rations."
+
+She could hear a few wrappers being ripped open and crunching and chewing. There was so much more noise now in the building with another person. She had not quite realized just how quiet her existence here had been until now.
+
+After he finished eating, he limped over to the pile of branches and started to lean over, looking over his shoulder, he asked, "Mind if I?" She shook her head no. He grabbed a few and tossed them onto the fire. It went smokey again and the wood hissed as it released whatever water was left in it. But the smoke started to dissipate and the fire burned a bit hotter.
+
+The man sat back down in his spot. "If it's all the same to you, I'm feeling pretty beat. Gonna close my eyes for just a bit. No need to be nursing over me the whole time. I'm sure you've got whatever it is you do here to do."
+
+His joints creaked and popped as he sat back down. It didn't take long for him to fall back asleep.
+
+# Chapter 5: Mastery Reason #
+
+Snow was falling steadily, in an almost mathematically predictable swirl. The flakes were large and puffy, as if someone had been hurling slivers of white confetti from the sky. It was filling in gaps and cracks wherever it found them, giving everything around the building a smoothed out, contoured look to it. The snow was even starting to accumulate along the metal barriers that jutted out into the water, making them look less like bony ridges and more like puffy appendages, like cold-damaged fingers.
+
+Throughout the day, several inches of snow had fallen, enough to make trudging through it challenging. So, the winter storm kept her inside, kept her from following many of the little routines that she usually followed, the observances that have given her life here structure, pattern.  
+
+So did having a house guest in Building 300. The man would sleep for an hour or so, be up for a few more, and then fall back asleep. He didn't say much when he was awake, mostly just stoked the fair with a bent piece of steel rebar and stared at the flames.
+
+Now that he was here, and seemingly in her care, she wasn't entirely sure what to do with him. She could feel his yearning for conversation, but that wasn't a need she could satisfy. She kept to her quiet, much as she had done for so long now. Besides, what would she say? Her brain could barely shape any meaningful stories, didn't want to turn everything that had happened into rehearsed chapters and paragraph breaks.
+
+And what stories would there be to tell that hadn't already been told before? He was here and worn and tired. He knew. What good would shifting platitudes back and forth between them do? So, there was no mad rush of words to fill the space between them, and the snow was making everything so much more muffled and quiet than it already was.
