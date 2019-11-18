@@ -242,7 +242,7 @@ This kitchen was much more promising. She opened a few cabinets and found a few 
 
 Now it was time to look for clothing, blankets, anything to help keep her warm. She moved up the basic stairs lined with basic carpet that even in the dark seemed to have a slightly plastic shine it.
 
-At the top of the stairs three bedrooms and a bathroom arranged themselves around the landing. She picked the door staight ahead and found herself in the remains of a master suite. The large king sized mattress had slid off the box spring. Sheets and clothes were in a tangle on the floor. Two doors in this room led to a large closet and a bathroom.
+At the top of the stairs three bedrooms and a bathroom arranged themselves around the landing. She picked the door straight ahead and found herself in the remains of a master suite. The large king sized mattress had slid off the box spring. Sheets and clothes were in a tangle on the floor. Two doors in this room led to a large closet and a bathroom.
 
 She stepped into the bathroom. Her hand instinctively reached to flip the light switch next to the metal and class medicine cabinet. The switch clicked up and down several times, as if moving by itself, doing nothing. She realized what she was doing and looked around her, only to find herself looking in the mirror.
 
@@ -318,7 +318,7 @@ He dug his fingers into his closed eyes, rubbing them hard, as if trying to rub 
 
 When she didn't answer, he opened his eyes and said, "Hmm, not the boat. What is this place?" Then he noticed her, "Who are you?" She still didn't answer, only sat there looking at him. "Don't say much, do you? Not much to say these days, I guess. Help me up, huh..."
 
-She grabbed both of his hands and helped him, the leaves rustling around him as she did. He was on his feet but wobbling. "This place smells terrible. What is it?" He look around more, seemed to be noticing the old pumps and machinery, "Some kind of pump house. Where are we? Aww, why am I asking you? You're not going to tell are you?"
+She grabbed both of his hands and helped him, the leaves rustling around him as she did. He was on his feet but wobbling. "This place smells terrible. What is it?" He look around more, seemed to be noticing the old pumps and machinery, "Some kind of pump house. Where are we? Aww, why am I asking you? You're not going to tell me are you?"
 
 She looked back him, just staying silent, watching as he seemed to come back online, to regain is awareness, his consciousness. She went to the door and shouldered it open. Cold air howled in through the doorway. It was snowing again outside.
 
@@ -326,7 +326,7 @@ The man stumbled over to the door and peered out. The light seemed to be too muc
 
 The man sat down by the fire, held his hands out to warm them. He would warm them, rub them briskly, and warm them some more. "How long have you been living here?" She shrugged. "I guess this is as a good a place as any to hunker down. Got any food? I'm starving..."
 
-She pointed over to box of food she had resupplied. "Slim pickins'. Nothing fancy here," he said. "But it beats camp rations."
+She pointed over to box of food she had resupplied. "Slim pickins'. Nothing fancy here," he said. "But it beats what I've been living on."
 
 She could hear a few wrappers being ripped open and crunching and chewing. There was so much more noise now in the building with another person. She had not quite realized just how quiet her existence here had been until now.
 
@@ -342,8 +342,62 @@ Snow was falling steadily, in an almost mathematically predictable swirl. The fl
 
 Throughout the day, several inches of snow had fallen, enough to make trudging through it challenging. So, the winter storm kept her inside, kept her from following many of the little routines that she usually followed, the observances that have given her life here structure, pattern.  
 
-So did having a house guest in Building 300. The man would sleep for an hour or so, be up for a few more, and then fall back asleep. He didn't say much when he was awake, mostly just stoked the fair with a bent piece of steel rebar and stared at the flames.
+So did having a house guest in Building 300. The man would sleep for an hour or so, be up for a few more, and then fall back asleep. He didn't say much when he was awake, mostly just stoked the fire with a bent piece of steel rebar and stared at the flames.
 
 Now that he was here, and seemingly in her care, she wasn't entirely sure what to do with him. She could feel his yearning for conversation, but that wasn't a need she could satisfy. She kept to her quiet, much as she had done for so long now. Besides, what would she say? Her brain could barely shape any meaningful stories, didn't want to turn everything that had happened into rehearsed chapters and paragraph breaks.
 
 And what stories would there be to tell that hadn't already been told before? He was here and worn and tired. He knew. What good would shifting platitudes back and forth between them do? So, there was no mad rush of words to fill the space between them, and the snow was making everything so much more muffled and quiet than it already was.
+
+The fire gave a loud crack and he looked up at her. They made eye contact. She could see pain washing in behind his tired eyes. Whereas she had seemed worn and folksy, she realized now that he was exhausted, spent. "You're probably wondering what my story is, aren't you?" She nodded.
+
+"Well, I'm not much of a storyteller, I guess. Course, neither are you." He let a little private chuckle escape with the quip. "My story isn't really a story, so I won't go back to the beginning or anything like that. So it's a pretty simple story, I guess. I'm looking for my grandson. We got separated, back in the city."
+
+He paused and stared into the fire, breaking his eye contact with her. "That's not entirely true. He left me. We had an argument. He's a teenager. Somethings never change, used to argue with his father all the time when he was that age too. Always told myself that I'd do better... Well any way, we had an argument and he left me behind. Now I'm looking for him."
+
+She looked in the direction of the water, wondering how his watery appearance on her beachy doorstep happened. "Oh, the water. Pretty dramatic, I guess. I was on a boat. There's still a few running out there. Well now they're all ferrying people north. For a price..."
+
+The only thing she could think of that was north was the hulking factory or power plant. "The rumor is that some group is getting the power plant up north fired up again. Gonna get it running and get us back to civilization, whatever that means."
+
+He shifted a bit, leaning back against the wall. He closed his eyes and pitched his head back against the concrete. "Oh what I wouldn't give for an aspirin right now. Getting old isn't kind and being old and getting pitched off a boat is even worse. Yeah, that's what happened. I had scavenged enough to get passage onboard one of those ferries. Pretty miserable actually. Thing moved slower than you can imagine and pitched every whichway in the waves. Waves are terrible these days. The lake ain't what it used to be, not that it was some little pond before."
+
+"I started to get sick, really gut wrenching sick and threw up on a guard. Real touch looking guy, real beat up looking and ugly. Not like me of course.... So this real scary looking guy is covered in vomit and we get into a tussle. So he just pitched me overboard. Heard even worse happens to people that step out of line, beatings, shootings. You name it. At least I just hit the waves like a rock and was able to wash up on land. And then you found me."
+
+"Now, I don't know what to do. I guess I keep looking. I have no idea how far that place is. Hell, I don't even know if my grandson made it. I'm hoping he did. But who knows. But I can't think of much else than this headache right now."
+
+She got up suddenly, "Where are you going?" She went over to her backpack and rummaged through it. She tossed something in his direction. He wasn't quick enough, so the plastic bottle thumped against his chest and landed in his lap. He picked up the bottle, turned it around, and smiled. "Aspirin. Let's see if this helps."
+
+He swallowed a couple of pills dry, and waved away the crumpled plastic bottle of water she tired to pass to him. "If I'm feeling better in the morning, I'll be heading out to continue my search if it's all the same to you. You know..." he leaned towards her, "You could come with me, up north."
+
+She didn't respond positively to this suggestion. "Look, I understand that you'e holed up here. You think you've got a good thing going. But it's getting cold out there. And it's just going to keep getting colder. Once everything is frozen up, it'll easily feel 10 degrees colder here on the water. How are you going to survive that? We don't have to stick together after that. But we're probably better off together than alone. Well, just think about it. I'm going to try to get some rest and wake up without this pain in my head."
+
+She stayed awake until the fire started to give out and stamped it out. She curled up under her layers of blankets, puffing hot breaths into her hands to keep them warm. She thought fleetingly about the man's suggestion, to travel with him north. To go with him to a place where people were gathering.
+
+What good would come of that, she wondered. People being together hadn't worked out so well before. The sanest thing, and safest, seemed to be what she was doing, finding some small place in the land to burrow in and be forgotten, forget.
+
+She started to close her eyes. As she did, her wind wandered to images of the car, it falling, the crunching sound it made. The way it wobbled back and forth, back and forth, creaking. She wanted to push the images away, but she couldn't displace them with something else. Finally, she fell asleep. She would decide in the morning what to do.
+
+Chapter 7: Mastery Reason
+
+She jumped at the gentle shove on her back, a hand rocking her back and forth. "Hey, I'm sorry to wake you up, but I didn't want to leave without saying something." She turned her head back and looked up. The old man was crouched down. He had all of his clothes on, his dry clothes. His hair was damp and slicked back from his face. His skin seemed loose and ashy in the dull morning light.
+
+She nodded, sat up, then got up. She went over to her small stockpile of food, medicine, and other items. She gathered together a few supplies for the man, wrapped them up in a small towel, and turned to hand the bundle to him. "Oh, I shouldn't. You don't have much here." But she repeated the gesture  several times, and he finally relented.
+
+"I guess that settles the matter of you coming with or not. I understand. If I can, I try to come back for you. Who knows, maybe I can send my grandson to fetch you and tell you all about living up north. Maybe that will convince you."
+
+He left Building 300 and pushed the door closed behind him. Even though she knew she would be fine, wanted to be fine her in this life she had made for herself, she felt an urge to help the old man, to not let him venture out on his own. She had already helped him this far. There didn't seem to be any reason not to trust him or his story. What was keeping her there?
+
+Routine, habit. Other things were keeping her rooted to that spot as well, but she was less willingly to think about those things. This was familiar. This was the now. Finally she knew what the now would bring. And knew that now's now would be much like tomorrow's now, even though that now was becoming increasingly less predictable.
+
+She stood in the building of those four thick concrete walls, feeling more alone than she had felt in some time. This other force in her, the force that was telling her to join the old man, to go north, to venture out and grasp at what might be better than what she had now, led her to start packing her things up.
+
+Most everything fit in her backpack, another sack, or stuffed into her coat pockets. She tied up her bedding crosswise over her shoulder and found herself standing on the shore, turning towards Marker 11. She turned to give the building one last look. Maybe her last? She didn't know. But the building sat there with its thick slanted concrete walls, as if hunkered down for the uncertainty that was sure to come.
+
+She set off at a brisk pace. It didn't take her long to catch up with the man. He had only made it to Marker 13. He was sitting on the low wall, seemingly catching her breath. He shielded the sun from his eyes with a flat hand and looked in her way. "I didn't make it very far. Guess I'm not as recovered as I thought. Maybe you can sit with me for a few before we continue on."
+
+She sat down next to him on the stone wall. "It's very peaceful here," he said after they had sat in silence for quite some time. "I can see why you were reluctant to leave. And it makes me want to stop you from coming with me, even though I know I need your help." He turned to her, a very serious look in his eyes, "I don't know what we'll find up north. I can't promise anything. I've heard the stories. The same stories that everyone else heard. Many people heard those stories and set off at once. Other weren't so sure. But how can you hear about a promised land and not feel a hankering to set off after it?"
+
+He was quiet again, pausing either for effect or to let his words really make an impact on her. "You're sure you want to do this?" She hopped up and off the wall. She looped her left thumb through her backpack straps and reached out with her right hand towards him, offering her hand to him. "Okay then, which way?"
+
+She pointed behind him to the beach, but he seemed to reject that idea. "No, we need to stay off the beaches. We can't risk being spotted by those boats. Believe me, we want to stay out of the way of them as long as we can."
+
+That meant venturing past Marker 13, past the site where the car crashed. It was difficult to go that way, but the man seemed determined to staff off the beach. She she went first picking her way through the overgrown path. She tried to break branches and trample down foilage as much as she could as she went.
