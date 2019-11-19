@@ -376,7 +376,7 @@ What good would come of that, she wondered. People being together hadn't worked 
 
 She started to close her eyes. As she did, her wind wandered to images of the car, it falling, the crunching sound it made. The way it wobbled back and forth, back and forth, creaking. She wanted to push the images away, but she couldn't displace them with something else. Finally, she fell asleep. She would decide in the morning what to do.
 
-Chapter 7: Mastery Reason
+# Chapter 7: Mastery Reason #
 
 She jumped at the gentle shove on her back, a hand rocking her back and forth. "Hey, I'm sorry to wake you up, but I didn't want to leave without saying something." She turned her head back and looked up. The old man was crouched down. He had all of his clothes on, his dry clothes. His hair was damp and slicked back from his face. His skin seemed loose and ashy in the dull morning light.
 
@@ -400,4 +400,36 @@ He was quiet again, pausing either for effect or to let his words really make an
 
 She pointed behind him to the beach, but he seemed to reject that idea. "No, we need to stay off the beaches. We can't risk being spotted by those boats. Believe me, we want to stay out of the way of them as long as we can."
 
-That meant venturing past Marker 13, past the site where the car crashed. It was difficult to go that way, but the man seemed determined to staff off the beach. She she went first picking her way through the overgrown path. She tried to break branches and trample down foilage as much as she could as she went.
+That meant venturing past Marker 13, past the site where the car crashed. It was difficult to go that way, but the man seemed determined to staff off the beach. She she went first picking her way through the overgrown path. She tried to break branches and trample down foliage as much as she could as she went to clear a path for the man through tangle in the ravine.
+
+They moved slowly, but each step brought them nearer and nearer to the car. She felt like they were careening towards it. Yet each step seemed to be diving the line between her and the car into ever smaller segments, again and again, making the chance of ever reaching the car seem impossible, as if it would be impossible to actually find it and see it again.
+
+But soon enough there it was. She shoved her way out of the brush and into the clearing at the base of the broken down bridge. Nothing about the scene had changed. There was the car, the broken glass. Above the twist of rebar and the gaping hole in the roadway.
+
+The man let out out a long whistle as he stepped into the area around the car. "That's a sight." He walked closer to the car, trying to peer into it, to learn something of the mystery of how a wrecked car had ended up here.
+
+He look up at the bridge, "Driver must not have realized that the bridge had given out. Wonder how long it's been here." She looked at him, shrugged. And with that they passed it by.
+
+She didn't know why she had shrugged. She wasn't likely to volunteer any information. She couldn't have pretended to not see the car, not to acknowledge it. There it was. There it would continue to be. Maybe long after she was no longer alive. That car would sit, sit and rust, until nature finally lay claim to the responsibility to deal with the car and the driver and the incident at the bridge.
+
+"We better find a way out of this ravine soon," the man yelled up to her. "We're heading too far west, we need to start veering north." She had not really been this far before, and didn't know how much farther they would have to go until they found a way up that both she and the old man could traverse.
+
+The path wasn't as difficult as it was closer to the water. She started to look around and feel the the crips air on her face, watch her breathe huddled into small streams of vapor and then disperse into the air. She didn't mind having to walk a little further along it, perhaps even secretly hoped that somehow, against all of the laws of nature and physics that the path would somehow bend back upon itself and carry them back to the starting point again, though maybe with fewer of the unpleasant things along the way.
+
+Rather than bend back on itself like a forested mobius strip, the path started to bend north now. Just up ahead, something like a small trestle bridge spanned the ravine. As they got closer, she realized that the bridge or struts or supports were holding up a large pipe. Maybe another relic of the all of the engineering to move water around that she had noticed back by the lake. Water leaked from some of the rusted joints in the pipe, leaving pools of liquid on the remnants of concrete below.
+
+Vines were growing up the trestles, but one of them, the one planted on the right of the path had words on it, made up of large metal letters that had been affixed to railings that traversed the structure. She couldn't make much sense of how or why the words were put together the way they were. "Mastery... Reason... Control... Explore," were just a few of the words that caught her eye.
+
+What seemed to have been an art piece fo somehow, now seemed like cryptic instructions left from one civilization to another. Only now the hidden logic, the understand that would have bound those words together was broken. She could read them and understand them, but they didn't mobilize any particular feelings for her.
+
+Here was another structure that was part of this place where she had found refuge. Only now, rather than as a thing to contemplate and take comfort in, these instructions, these stark exhortations, were something to pass by, to leave behind, as they tried to find a place to get enough of a foot hold to climb up and out of the ravine.
+
+"This seems like as good a place as any to get up and back into what's up above," the man said as she started to lead him past the cryptic word art. "Besides, I"m getting tired again and think I need to rest." She looked more closely and realized that the area around the trestles would be easier to climb up and they could use the trestles to steady themselves.
+
+# Chapter 8: The Tower #
+
+Getting up topside wasn't too difficult, she had to steady the man a few times. When they stepped up on the pavement of a road above, he hunched over and caught his breath before they moved on.
+
+Just up ahead and down the road were houses on each side, and then what looked to be a fenced off area. Further area, looming over the trees and the houses, she could just make out the top of a tower. She could see the lines of the roof and the gentle curves of windows that must be set along the tower's perimeter.
+
+The man nudged her, "We should head to that way. Maybe we can take a looksee from the tower and get a better idea of where we're going."
