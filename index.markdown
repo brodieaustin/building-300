@@ -1,4 +1,4 @@
----
+paralyzed---
 layout: base
 ---
 
@@ -336,7 +336,7 @@ The man sat back down in his spot. "If it's all the same to you, I'm feeling pre
 
 His joints creaked and popped as he sat back down. It didn't take long for him to fall back asleep.
 
-# Chapter 6: Mastery Reason #
+# Chapter 6: The Boat #
 
 Snow was falling steadily, in an almost mathematically predictable swirl. The flakes were large and puffy, as if someone had been hurling slivers of white confetti from the sky. It was filling in gaps and cracks wherever it found them, giving everything around the building a smoothed out, contoured look to it. The snow was even starting to accumulate along the metal barriers that jutted out into the water, making them look less like bony ridges and more like puffy appendages, like cold-damaged fingers.
 
@@ -428,8 +428,44 @@ Here was another structure that was part of this place where she had found refug
 
 # Chapter 8: The Tower #
 
-Getting up topside wasn't too difficult, she had to steady the man a few times. When they stepped up on the pavement of a road above, he hunched over and caught his breath before they moved on.
+Getting up topside wasn't too difficult, though she had to steady the man a few times. When they stepped up on the pavement of a road above, he hunched over and caught his breath before they moved on.
 
 Just up ahead and down the road were houses on each side, and then what looked to be a fenced off area. Further area, looming over the trees and the houses, she could just make out the top of a tower. She could see the lines of the roof and the gentle curves of windows that must be set along the tower's perimeter.
 
-The man nudged her, "We should head to that way. Maybe we can take a looksee from the tower and get a better idea of where we're going."
+The man nudged her, "We should head to that way. Maybe we can take a looksee from the tower and get a better idea of where we're going." He started to walk down the road towards the fenced in area.
+
+She was frozen in place, reluctant to move. It was difficult to shake the fear and uncertainty of being out in the open, exposed like this. She had managed to only venture up when she needed to for so long, that not being burrowed in to the dips and recesses of the ravines and waterfront felt uncomfortable to her now. Even having someone with her didn't ease the anxious feeling she felt. It may have made it worse, had she stopped and really worked to unpack these feeling.
+
+She wasn't able to properly asses and diagnose these criss-crossing feelings working at cross purposes to one another. She had survived thus far, had managed to keep herself alive and out of the way of everything that causing havoc and destruction around her. And yet, she was paralyzed by fear, partly because the effort to keep the horror and terror at bay left little energy for much else.
+
+The man walked back to her and held out his hand. She waved it away, took a deep breath and started walking, passing him at first. He picked up his pace, "I don't plan on asking you why you don't talk. I don't need to know. I've seen enough to understand completely. But you aren't alone, at least for right now. We can help each other out. We just need to..."
+
+She felt this had the makings of a very nice speech, probably unnecessary, but nice. The speech was interrupted suddenly by an explosion of dogs barking and throwing themselves up against the metal fence. The fence rattled and rocked, looked very close to toppling over.
+
+They both startled and stopped. A few more dogs joined the pack. The new ones fresh to the excitement barking the jumping, the other in the forefront whimpering and pacing. They both started to walk more quickly, but the dogs continued to follow them, continued to raise a ruckus as they did.
+
+She wished that the dogs had not been so loud. It really would have been fine if they just hadn't drawn so much attention to the two of them, but here they were, isolated in the middle of a street with one entrance and one exit, and feral dogs calling the worlds attention to them.
+
+At the end of that stretch of street, the fence on the left side, the side with the dog pack, was sagging. The post on the corner had been knocked loose at some point. Whether before or after was hard to know. Ahead of them, they started to see buildings built in rows, uniformly a tanish yellow color with brown roofs.
+
+"Look like barracks," the man said in a halting, panting way. "We need to keep going." The dog pack had consolidated at that weak corner, the dogs were piling on each other. One dog managed to reach the top of the pack and rolled over the sagging top of the fence, at first with a whelp.
+
+Confused by what had happened at first, the dog realized that it was free from the gate, notice her and the man just a a little ways ahead and set after them. She turned back before it was too late, and grabbed the man and started to run. Neither of them had the full stamina and speed of fully healthy person, but both of them ran faster than they probably thought they could, propelled by fear and adrenaline.
+
+They turned down another block and started running that way. The turn they the dog off momentarily, but not long enough. They veered left again. She looked up at saw that they were running towards a tower that all of the streets seemed to lead towards.
+
+The dog hadn't tired of chasing them yet, but the man was getting winded. She pointed out the tower to him and he nodded in agreement, "Just...keep...running..." he said. But she didn't plan to leave him behind.
+
+As the tower drew closer to them, she noticed something unusual, or at least thought that she did. Up at the very top of the tower in one of the row of arched windows, she thought she saw a flashing light. But maybe it was just a trick of the light outside.
+
+A few more steps. She saw it again. Then again. In fact, the light was flashing in some kind of pattern, maybe a meaningful one, maybe not. In either case, clearly someone was up there signaling to them.
+
+"I see it too," the man said. "Just a little further."
+
+The road did, in fact, terminate around the tower. The structure itself was surrounded by a circular road. The tower was built on arches, which allowed a road, the one they were on now, to run through the middle of it.
+
+She wasn't sure exactly where to go, or how this light signaler intended to help them. Then up ahead she saw something being lowered down, a ladder. The singular was lowering a ladder for them.
+
+She was the first to reach it and started climbing up the old wooden ladder hand over hand, foot after foot. The old man was behind her. Unfortunately, so was the dog. It was managed to catch up with them and lunged at the man. His left foot was well within the dog's reach and it tried to clamp down on lower leg. It wasn't quick enough to latch on completely, but did manage to bite the man. He cried out in pain. She looked down behind her, but kept moving up the ladder.
+
+When she reached the top of the ladder, she tumbled out into a dark, brick-lined room. She offered her had to help the man up. He rolled onto the floor, cursing as he rolled on his back, "Damn dogs. Never liked dogs much. This settles it."
