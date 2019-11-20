@@ -1,4 +1,4 @@
-paralyzed---
+---
 layout: base
 ---
 
