@@ -534,7 +534,7 @@ The area around the hospital seemed to be clear. The man darted out suddenly int
 
 They circled around to the back of the hospital building. Concrete steps with a rusty hand railing led down to a metal door without a visible handle and a sliver of a window. The glass had metal mesh embedded it. From the look of it, the glass seemed to be intact. Somehow the man was able to push at the corner of it and get his hand inside. He reached a little further in until the door began to swing open. He carefully pushed the glass back into place and went inside.
 
-Chapter 9: The Hospital
+#Chapter 9: The Hospital#
 
 She wasn't sure exactly what she was expecting, but the scene inside the hospital surprised her. Everything was in disarray in inside. The ceiling grid was missing tiles, or tiles were sagging from moisture and humidity. A lone chair was overturned off the to side. Brick walls in the basement area where they entered were peeling. There was a general feeling of disrepair, of abandonment everywhere she looked. The building was in such bad shape, that it must have been like this for a very long time.
 
