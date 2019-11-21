@@ -1,4 +1,4 @@
----
+preoccupied---
 layout: base
 ---
 
@@ -469,3 +469,59 @@ She wasn't sure exactly where to go, or how this light signaler intended to help
 She was the first to reach it and started climbing up the old wooden ladder hand over hand, foot after foot. The old man was behind her. Unfortunately, so was the dog. It was managed to catch up with them and lunged at the man. His left foot was well within the dog's reach and it tried to clamp down on lower leg. It wasn't quick enough to latch on completely, but did manage to bite the man. He cried out in pain. She looked down behind her, but kept moving up the ladder.
 
 When she reached the top of the ladder, she tumbled out into a dark, brick-lined room. She offered her had to help the man up. He rolled onto the floor, cursing as he rolled on his back, "Damn dogs. Never liked dogs much. This settles it."
+
+She scanned the dim room to see if she could spot who had helped them with the signal and the ladder. But the room was empty. All she noticed was an old wooden door, slightly ajar, that seemed to lead to a staircase. The man noticed the staircase too, "I think I can make it up if you help."
+
+They moved slowly up the narrow staircase, passing a small window that seemed to be punched into the thick brick walls. Then must have gone up 5 stories, before they took a break on the landing, then continued on up the stairs.
+
+Finally, at the top of the stairs, they found another door much like the one below, only this one wasn't ajar. She reach out to open the door and the handle spun around in a circle a few times. She rotated it back and forth but with the same results.
+
+Then she heard a voice call out, "Just shove it. Give it a shove. With your shoulder." So that's what she did. The door gave way just as the voice had suggested it would, and they stepped out into the large, crowded upper floor of the tower.
+
+Large pipes ran up and down the brick walls. Spindly light fixtures that terminated into a smooth, sloped shape hung evenly every few feet. Overhead, thick steel beams that ran across the ceiling. But more than any of these architectural features, she realized that the room was full of thing, a riot of clutter in every direction.
+
+At first glance, she couldn't make much sense of what was in the room. There were stacks of dishes in one place. Broken bits of electronics with their wires hanging out in every direction. Books, books piled and unpiled as far at the eye could see.
+
+And in the middle of all of this chaotic jumble was a nervous looking man, probably not much older than she was. He wore several sweaters layered on each other, but each one full of rips and holes. He pants were frayed and both knees worn out. He wore an old woolen army cap, the kind with fancy folds and pleats.
+
+"Good, you saw my signal. Someone finally saw the signal. You were smart to notice it. I'm glad you did," he started in, pacing as he spoke. "At last the signal worked. Did you understand it? What it meant?"
+
+She looked at the old man, and simply nodded to the nervous-looking man. The old man winced as the pressure on his injured foot started to wear on him, "She's not a talkative one. So don't take it personally if she doesn't respond. But yeah, we saw the signal."
+
+The younger man didn't seem to register what the older man had just said and continued on, "I knew it was only a matter of time. Just waiting. Had to be patient. So glad I waited. So glad."
+
+"Well, we're glad too, mind if we sit. I'm not holding up too well here."
+
+"Yes, yes, of course. Just find somewhere..." the younger man peered around the room. "Anywhere really."
+
+She led the old man over to an old chair in the corner next to pile of browning newspapers. She lowered him down and moved a large suitcase over to prop his foot up on it.
+
+"Any chance you have any medical supplies?" the older man asked.
+
+"Medicine, medical supplies. No, didn't fit in my plan. So, no."
+
+"I could use something here, anything. Some antiseptic, maybe a clean bandage. Can we improvise?"
+
+"Improvise? No need, we can scavenge. Scavenging is much better than improvising."
+
+"Okay, makes sense. I'm in no shape to scavenge, so what do we do? Can you go?"
+
+"Me? Oh no. I'm in no shape to leave now, not after all of the work I've done. It would be too hard."
+
+"Well, she doesn't know where to scavenge. Do you think she could take you with her?"
+
+"Her?" He looked her over. "That might work. She's good at keeping secrets. And the things I know are secrets. Must be protected."
+
+The old man looked at her and waved her closer to him. She bent down to hear what he wanted to say, "You don't mind going? You don't have to if you have a bad feeling about it."
+
+She put her hand on his shoulder and smiled in the most reassuring way she could manage. She turned to the nervous man who was looking out of the one the tall slender windows. "We can leave in thirty minutes, but not before. I'll start a countdown." He took out an old antique looking pocketwatch; she couldn't tell if it was actually working from where she stood. He fiddled with it for a moment and resumed looking out the window. "Once the sentinels pass, we'll be all clear. Just thirty minutes."
+
+There wasn't much for to do until then, so we gave the old man some pain relievers and water, just to keep him comfortable until they came back. She regretted not having more useful first aid supplies. Her impulsive decision to follow the man on his journey to find his grandson seemed even more impulsive now.
+
+Even after thirty minutes of being in the nervous man's space, she couldn't really make heads of tales of what had been accumulated in the room. She also wasn't entirely sure if he had gathered all of this stuff. He seemed to be completely uninterested in it, and much more preoccupied with what was happening outside. He did, periodically, and very quickly, move towards a table against one of the walls and look through the contents of the desk.
+
+He signaled that it was time to leave by heading to the stairs and starting to walk down the ten flights to the first floor. She wondered where exactly he would take her. She also hoped that there weren't any more dogs roaming free outside.
+
+When they got down to the bottom floor, he opened the hatch through which she had entered previously and peered down through it. "I think the dog left. That's a good thing. Or it could be a bad thing. It depends. But I don't see it. So that's good...for now." She agreed with him that this was a good thing and also couldn't hear any distinct dog sounds.
+
+They climbed down the stairs and set off in the opposite direction they came from to get here. The nervous man moved very quickly in bursts of movements, punctuated by periods of prowling and lurking. He very clearly had made journeys like this before and knew how not to be detected.
