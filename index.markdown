@@ -1,4 +1,4 @@
-preoccupied---
+importantpreoccupied---
 layout: base
 ---
 
@@ -518,10 +518,50 @@ She put her hand on his shoulder and smiled in the most reassuring way she could
 
 There wasn't much for to do until then, so we gave the old man some pain relievers and water, just to keep him comfortable until they came back. She regretted not having more useful first aid supplies. Her impulsive decision to follow the man on his journey to find his grandson seemed even more impulsive now.
 
-Even after thirty minutes of being in the nervous man's space, she couldn't really make heads of tales of what had been accumulated in the room. She also wasn't entirely sure if he had gathered all of this stuff. He seemed to be completely uninterested in it, and much more preoccupied with what was happening outside. He did, periodically, and very quickly, move towards a table against one of the walls and look through the contents of the desk.
+Even after thirty minutes the of being in the nervous man's space, she couldn't really make heads of tales of what had been accumulated in the room. She also wasn't entirely sure if he had gathered all of this stuff. He seemed to be completely uninterested in it, and much more preoccupied with what was happening outside. He did, periodically, and very quickly, move towards a table against one of the walls and look through the contents of the desk.
 
-He signaled that it was time to leave by heading to the stairs and starting to walk down the ten flights to the first floor. She wondered where exactly he would take her. She also hoped that there weren't any more dogs roaming free outside.
+He signaled that it was time to leave by heading to the stairs and starting to walk down the ten flights to the first floor. She assumed that the sentinels has passed, but wasn't exactly sure what that meant or how he knew. She wondered where exactly he would take her. She also hoped that there weren't any more dogs roaming free outside.
 
 When they got down to the bottom floor, he opened the hatch through which she had entered previously and peered down through it. "I think the dog left. That's a good thing. Or it could be a bad thing. It depends. But I don't see it. So that's good...for now." She agreed with him that this was a good thing and also couldn't hear any distinct dog sounds.
 
 They climbed down the stairs and set off in the opposite direction they came from to get here. The nervous man moved very quickly in bursts of movements, punctuated by periods of prowling and lurking. He very clearly had made journeys like this before and knew how not to be detected.
+
+After two blocks, he veered off to the right. After several streets of similar two and three story buildings, they entered into a square with a large building in the middle.
+
+Before entering the clearing, he paused and crouched down. She did the same. He waved her up closer to him, "This used to be an army base, a long time ago. Many secrets here. They kept the hospital running. Why? No one knows. That's where we're going."
+
+The area around the hospital seemed to be clear. The man darted out suddenly into the open, keeping his hands over his head as he ran. She wasn't sure what the immediate danger was, so she just ran as fast as she could to keep up with him.
+
+They circled around to the back of the hospital building. Concrete steps with a rusty hand railing led down to a metal door without a visible handle and a sliver of a window. The glass had metal mesh embedded it. From the look of it, the glass seemed to be intact. Somehow the man was able to push at the corner of it and get his hand inside. He reached a little further in until the door began to swing open. He carefully pushed the glass back into place and went inside.
+
+Chapter 9: The Hospital
+
+She wasn't sure exactly what she was expecting, but the scene inside the hospital surprised her. Everything was in disarray in inside. The ceiling grid was missing tiles, or tiles were sagging from moisture and humidity. A lone chair was overturned off the to side. Brick walls in the basement area where they entered were peeling. There was a general feeling of disrepair, of abandonment everywhere she looked. The building was in such bad shape, that it must have been like this for a very long time.
+
+The man didn't seem to take notice and seemed to know his way around. He led her to the stairwell to head up the first floor. Electrical wires plunged from the ceiling. One section of the wall had been ripped open and sections of pipes had been pulled out. The building had clearly seen its share of scavengers.
+
+They didn't stop at the first floor though. The man led her up the very top of the building. "We have to make stop first. Then we'll get what we're looking for," he said. As they entered the third floor, she saw a long hall of doors with frosted glass. This floor must have housed offices at some point.
+
+She followed him halfway down the hall before he stopped. He turned to her suddenly and grabbed her hands. She started to flinch and pull away, but he tugged her back towards him. "I have to know..." he started.
+
+He took a gulp, then a deep breath, closed his eyes, muttering, "Maybe this isn't a good idea. Maybe this is bad. Really bad." He opened his eyes again, took another puff of air, and seemed to reset himself. "I have to know that I trust you. Can I trust you?"
+
+She wasn't sure how to reply. Could he trust her? She didn't know how to answer the question. She was only concerned right now with helping out the old man, putting one foot in front another, avoiding danger and threats. What role did trust play in any of this?
+
+But clearly this question was important to the man, and affirming his need for trust stood between her and wherever the medical supplied were. Though the thought crossed her mind that perhaps this nervous strange young man couldn't be trusted, but it was too late to worry about that now.
+
+So, she nodded and he replied, "I knew it. I knew it when I spotted you. I've been other people come this way you know. I've been packs of marauders, murders, everything. I've seen them all. And I never gave the signal. I knew the wait to give the signal until I saw you."
+
+He turned towards the door. The doors had windows above them. In this case, she noticed that the window was slightly open, very subtly left in a state between opened and closed. He jumped up and pulled himself through the window. A moment later the door to the office opened. "Come in, quickly..." he said.
+
+The office was unremarkable. A desk covered in paper, drawers half open. A desk chair that titled to the right. A small table by the window with two chair overturned on their sides. Then there were book cases.
+
+Surprisingly the book cases were in good order. Only a few books had been overturned. The man ran his fingers along them and seemed to be counting to himself or rehearsing some kind of repeatable phrase.
+
+His finger stopped on the spine of an old medical book covered in a deep red reinforced cloth. The spine label was too worn the make out clearly. He pulled the book from the shelf, flipped it over several times as if performing a magic trick.
+
+He opened to book from the back. She realized then that the book had been hollowed out in a deep circular shape. He held the book out to her and said, "Take it." She wasn't sure what to take at first so she reached for the book, "No what's inside. Take it."
+
+She looked into the cutout and saw a reflective disc nestled in the cutout, a media disc of some kind, unlabeled. She used her nail to lift the disc from its hollow plastic center. As she held it up, light played across the reflective surface in shades of blues and purples.
+
+"That is your purpose now," he said in a breathless, reverent way.
