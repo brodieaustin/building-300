@@ -564,4 +564,28 @@ He opened to book from the back. She realized then that the book had been hollow
 
 She looked into the cutout and saw a reflective disc nestled in the cutout, a media disc of some kind, unlabeled. She used her nail to lift the disc from its hollow plastic center. As she held it up, light played across the reflective surface in shades of blues and purples.
 
-"That is your purpose now," he said in a breathless, reverent way.
+"That is your purpose now," he said in a breathless, reverent way. "It's been my purpose for...for as long as I can remember now."
+
+He went over to the window and scanned outside. "You have to protect it, to guard it. You are the guardian now."
+
+She turned the disc over a few more times, expecting to find writing on it or a label. But the disc was blank, shiny and blank. As if responding to her puzzled look, he continued on, "That disc contains very important information. Information," he lowered his voice, "that could save the world. An army officer gave it me as the army left this base. It was sent here a very senior official. Highest echelons of the government, or what was the government. I didn't know how to keep it from falling into the wrong hands, so I kept it here. And the tower. I kept looking for something that would help me read it, to unlock the secret that it contained. But I could never find anything."
+
+He took a long, deep breadth. "Now it's yours. Your mission. I'm so relieved." He held open the book in front of her, and she placed the disc back inside. He handed the book to her. Still puzzled, she slipped it into her backpack. Not really sure what she would do with it now, but feeling the little bit of added weight on her back.
+
+They left the office, leaving the door opened behind them. She moved to close it, but he stopped her, "It doesn't matter now. It's just a room. Nothing in there worth protecting. Now, as for your supplies, there should be a cabinet of supplies on the next floor down. I'll catch up with you, I have just one more thing to do up here."
+
+She went downstairs and saw a desk on the floor, that seemed to have been a nurses station at one point. Behind the desk was, in fact, a small cabinet of supplies. She hadn't been completely sure whether there would be any supplies or not, given how absorbed the man seemed to be in the disc and his mission to protect it.
+
+Inside the cabinet, she found a few wrapped antiseptic pads, packets of ointment and bandages. The supplies were meager, and not particularly new looking, but she hoped it would be enough to stop any infection the old man might get from his encounter with the dog.
+
+With the supplies also stuffed into her backpack, she waited in the stairwell for the man to come down. She waited for several minutes before she began to wonder what happened to him. She held her head down and closed her eyes, as if trying to sharpen her senses. Even with her intense focus and concentration, she couldn't hear anything that would indicate the man was moving.
+
+She put her back to the wall and slid down to the floor, wrapping her arms around her folded up legs. She waited some more until she began to worry about it getting dark outside. Already the early afternoon was dull and dim outside. Less light was pouring in through the stairwell window.
+
+She propped herself back up and headed up the stairs, very slowly, stopping on each stair to listen carefully. With each step and stop, she could feel herself wrestling with a feeling of panic that was welling up inside of her. By the time she reached the next floor's landing, she still didn't hear anything coming from the floor.
+
+Outside of the stairwell, she turned to the left, the opposite direction of the office they had explored earlier and walked the length of that half of the floor. No sign of the man in that direction. She went back the other way, past the office door. Just past the office door, on the oppposite side of the hall was an alcove. Slender doors marked with restroom signage were on either side of the alcove.
+
+She poked her head into the women's washroom first and didn't see anything. She opened the door the men's washroom and immediately gasped. The man was still and lifeless, half propped up on the floor, a length of rope gripping his neck. The other end was tied to the bathroom sink hardware.
+
+She didn't rush to help him or investigate. She turned hard on her heel and quickly, intently headed back outside to the tower. If anyone had seen her from afar, they would not have guessed what she had just seen and the flood of thoughts and emotions that she was holiding at bay. From a distance, she seemed to be a determined woman walking quickly from point A to point B.
