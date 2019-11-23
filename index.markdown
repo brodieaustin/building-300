@@ -534,7 +534,7 @@ The area around the hospital seemed to be clear. The man darted out suddenly int
 
 They circled around to the back of the hospital building. Concrete steps with a rusty hand railing led down to a metal door without a visible handle and a sliver of a window. The glass had metal mesh embedded it. From the look of it, the glass seemed to be intact. Somehow the man was able to push at the corner of it and get his hand inside. He reached a little further in until the door began to swing open. He carefully pushed the glass back into place and went inside.
 
-#Chapter 9: The Hospital#
+# Chapter 9: The Hospital #
 
 She wasn't sure exactly what she was expecting, but the scene inside the hospital surprised her. Everything was in disarray in inside. The ceiling grid was missing tiles, or tiles were sagging from moisture and humidity. A lone chair was overturned off the to side. Brick walls in the basement area where they entered were peeling. There was a general feeling of disrepair, of abandonment everywhere she looked. The building was in such bad shape, that it must have been like this for a very long time.
 
@@ -584,8 +584,46 @@ She put her back to the wall and slid down to the floor, wrapping her arms aroun
 
 She propped herself back up and headed up the stairs, very slowly, stopping on each stair to listen carefully. With each step and stop, she could feel herself wrestling with a feeling of panic that was welling up inside of her. By the time she reached the next floor's landing, she still didn't hear anything coming from the floor.
 
-Outside of the stairwell, she turned to the left, the opposite direction of the office they had explored earlier and walked the length of that half of the floor. No sign of the man in that direction. She went back the other way, past the office door. Just past the office door, on the oppposite side of the hall was an alcove. Slender doors marked with restroom signage were on either side of the alcove.
+Outside of the stairwell, she turned to the left, the opposite direction of the office they had explored earlier and walked the length of that half of the floor. No sign of the man in that direction. She went back the other way, past the office door. Just past the office door, on the opposite side of the hall was an alcove. Slender doors marked with restroom signage were on either side of the alcove.
 
 She poked her head into the women's washroom first and didn't see anything. She opened the door the men's washroom and immediately gasped. The man was still and lifeless, half propped up on the floor, a length of rope gripping his neck. The other end was tied to the bathroom sink hardware.
 
-She didn't rush to help him or investigate. She turned hard on her heel and quickly, intently headed back outside to the tower. If anyone had seen her from afar, they would not have guessed what she had just seen and the flood of thoughts and emotions that she was holiding at bay. From a distance, she seemed to be a determined woman walking quickly from point A to point B.
+She didn't rush to help him or investigate. She turned hard on her heel and quickly, intently headed back outside to the tower. If anyone had seen her from afar, they would not have guessed what she had just seen and the flood of thoughts and emotions that she was holding at bay. From a distance, she seemed to be a determined woman walking quickly from point A to point B.
+
+It took several jumps, and finally a running leap, to grab the ladder's dangling end and pull it down. She climbed up quickly, pulled the ladder back up behind her, and head back up to the tower's top level.
+
+The man winced his way towards her when she entered through the door. "I saw you heading back this way. Where's the guy? What happened?"
+
+She walked over determinedly to a table and unpacked the scant medical supplies. She steadied and steeled herself, determined to hold this episode at bay, determined to not let this, this random strange man's death break her down.
+
+The man hobbled over to her, started to put his hand on her shoulder, withdrew it, "Are you okay?" She turned to him with the supplies, a hard look in her eyes. "I see. Something happened and you don't want to talk about it. I get it. I guess I should let you get to work."
+
+She doused his foot with the antiseptic, careless about wasting what could be a very precious supply. She dabbed the foot dry with several gauze packs, applied the ointment, and wrapped it up. The man looked down at the finished product, "Not bad work. My son was a nurse. He would approve." She managed a faint smile and went back to the table to pack up the supplies.
+
+Rather than sit by the man, she roamed the floor and rummaged through the junk in the tower. The man, that dead, lifeless man, had spent countless days and hours harvesting this junk from the buildings around the tower. Had pulled back pieces of conduit, signs, old electronics, motors, clothing, bedding, magazines, pots, pans, tools, and more, piece by piece, bit by bit.
+
+For what? For the disc that she had nestled down in her pack. How could someone had spent so much effort, so much dedication to something that wasn't real, a fiction, a fantasy?
+
+The man had probably spent sleepless nights plotting out each strategy, each step for the next day. And each action was meant to add up to this...this accumulation of fragments, of things ripped from their original scene and compiled in this disorderly plan.
+
+And they had been led into it by a mere faint shiny reflection, some little bauble he had flashed before them, making this riot of his delusion seem like a safe harbor. And with the book shoved in her hand, and some kind of half thought out vow made, she was engrossed in whatever plot he had concocted in this lonely, bleak structure.
+
+The man spoke up and interrupted her reverie, "Nothing to do now but wait. Hopefully I can put some weight on this foot tomorrow. We'll see if the swelling goes down. Looked like a storm was approaching. Maybe snow soon."
+
+She nodded, agreeing that it had felt cold outside; she hadn't really noticed it at the time. She gathered up all of the bedding and blankets she could find in the tower, pulled a few old mattresses into the middle of the floor and made a place for them to hunker down for the night.
+
+# Chapter 10: Passage #
+
+"I found a map," the man said, waking her up from a dimly remembered dream. "Looks like there are some old train tracks to the north. Should get us really close to the power station if we just follow those." She looked around and realized it was still dark out. "If we leave now we can get clear of these buildings in the dark and start out on the tracks as it gets light."
+
+He handed the torn out page from a road atlas to her as she sat up, rubbing sleep out of her eyes. She looked it over and traced her finger over the red lines. Little markers and names came into focus. Sure enough there were the train tracks heading on a sure, straight slant northwards.
+
+The man seemed more surefooted this morning, walking with a slight limp. He walked back to the windows and peered out. "I don't trust these buildings. They seem full of...I don't know...secrets. They seem to want to burst. They just give me a bad feeling."
+
+They started to pack up and get ready to leave. "Not bringing anything along?" he asked. "Could be some useful things in here. Like this. I haven't seen one of these in years." He held out a rounded slab of grey plastic. He pushed a button and the lid flipped open. "Disc player. I used to carry one of these around wherever he went. When I as younger, of course."
+
+He closed the lid and handed the player to her. She turned it over, examined it, but tried to seem uninterested in it. She handed it back. "Not the most useful thing, I admit. But hell, I'm going to hold on to it. Nothing wrong with a little frivolity when the whole world's gone wrong, right?"
+
+She shrugged and started down the steps. Heading down to the ladder was much more a step by step procedure than before. The man wasn't running on adrenaline and seemed much more conscious of himself being an injured person. They finally made it down the ladder. Much the man had done, she peered down through the opening, trying to detect any unwanted animals, people, whatever. After a few minutes listening, she lowered the ladder down and started heading down rung by rung.
+
+As they walked, she kept having to remind herself to slow down. She was leaving the old man further and further behind, without realizing it. 
