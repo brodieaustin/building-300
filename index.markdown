@@ -626,4 +626,50 @@ He closed the lid and handed the player to her. She turned it over, examined it,
 
 She shrugged and started down the steps. Heading down to the ladder was much more a step by step procedure than before. The man wasn't running on adrenaline and seemed much more conscious of himself being an injured person. They finally made it down the ladder. Much the man had done, she peered down through the opening, trying to detect any unwanted animals, people, whatever. After a few minutes listening, she lowered the ladder down and started heading down rung by rung.
 
-As they walked, she kept having to remind herself to slow down. She was leaving the old man further and further behind, without realizing it. 
+As they walked, she kept having to remind herself to slow down. She was leaving the old man further and further behind, without realizing it. She would stop and watch him as he hobbled closer and closer to her. They would pause for a moment, silent, not looking at each other, and continue in their veering course, bearing to the north and west.
+
+Within an hour of walking they had cleared the winding streets of the housing developments around the tower. The crossed a large open stretch of grassy ground before managing their way through a line of trees that seemed to run to the water.
+
+When they broke through the trees, they found themselves standing on the out skirts of a small cemetery. Plain, grey stone headstone were arranged in perfectly concentric circles. In the center of the circle was an obelisk-like monument.
+
+They crossed the field between them and the cemetery. An old split-rail fence bisected the field and traced the path of the road that led into the cemetery. She helped the man step over the rails and on to the road. From the road, they headed into the cemetery, before veering tot he right and picking up a smaller path that radiated from the cemetery's center-most circle.
+
+As she approached the obelisk, she realized that there were two statues on either side of it. One statue was a soldier, dressed in an old-fashioned uniform, faced east. The solider's rifle rested in his hand, tipped against his soldier. His helmet like an inverted bowl on his head; his pants and boots wrapped tightly. The soldier's back was straight; his gaze eastward faraway, either resolute or disengaged, she couldn't tell.
+
+The other statue was an angel, faced west. The angel's head tilted to the side; her gaze was cast down, looking more earthward than heavenward. Her arms at her side, her hands spread out, palms up. Her wings were kept close to her body. She wasn't about to take flight, rather she was stationed here, accepting those ready to rest under her watchful, welcoming eye.
+
+She sat right down on a bench right in the middle of them and leaned back into the obelisk. The man wandered about a little with his limited mobility, studying the grave markers in a seemingly random way. "My father was a history buff," he said. He could have told us about the company and regiments these fellows belonged to. Me? Not so much. Ready to keep to moving?"
+
+She stood back up and the followed the winding road out the cemetery and found themselves in the middle of a three lane road with fading lane markers. Just beyond the road, a line of short electrical poles seemed to be following a path. He pointed ahead, "Look, I think the tracks are just over there. Let's head that way."
+
+They transitioned from the road to a strip of overgrown, weeded ground, and onto the crunch of gravel that surrounded the tracks. Standing on the tracks, she turned her head in either direction and could see clearly for what seemed like an incredible distance. Eventually her sight gave out in a haze of switches and other gear that ran along and over the track. They turned right and northwards and started walking the tracks.
+
+Up ahead, she could just make out a squat, heavy stone train station. There seemed to be something on the tracks, stationary, by the station. As they came closer, she began to hear neighing and chuffing of horses, the ringing of harnesses. "What is that?" the old man said, quietly, more to himself than to her. "Horses?"
+
+The horses were harnessed to a simple, flat wooden platform that had been mounted to train wheels. They didn't see anyone attending the horses, giving the horses and the cart the appearance of having fallen from the sky.
+
+The horses began to sense their approach and grew nervous. They started pacing, seemingly fighting their instinct. The man and the woman both stopped, carefully to not spook the horses any further. As they stood there, a man appeared from one of the train station archways. He was wearing a maroon blazer that was at least one size too small, several dirty shirts underneath, and dark, denim like pants.
+
+He had the look of someone who was supposed to be to dressed up, to convey an that this person was interacting with fine people, someone who had been dressed up by someone else. But the reality, the execution, missed the mark. "You folks have passage?" he asked as he grabbed at the horses harnsess and settled them down.
+
+"Passage..." the old man started to ask, but seemed to feel that there was more at stake in what the man asked. "Yes, of course."
+
+"Deposit the fee at the ticket window. In the drop box," he replied, barely looking at them.
+
+The driver spoke with such detachment and boredom, that she wasn't entirely convinced he was speaking for himself. The words and actions seemed to be automatic. His body moved, but lacked animation. Vitality has drained from him a long time ago.
+
+The old man pressed something into her hand, it was a large silver coin. She turned the coin over and over, tracing the contours of the embossed shapes, the man's profile with a close shaven cut, the eagle spread across the other side with its claws held far apart.
+
+The old man nudged her forward and pointed to the ticket window. She looked back at him, as if to say, "Are you sure?" This coin was probably worth something these days, and he was just casting it off to ride on this cart that went...who knew where it went.
+
+While she deposited the coin, the man walked to the cart, trying to make small talk with the driver, who was now sitting in a simple metal framed chair with fabric that had been bolted somehow to the platform. By the look of the chair, he should have been sitting in a conference room or hotel lobby. But here he was, looking like a rustic ferryman, ready to take passengers across a turbulent fording point in the river.
+
+The old man had already settled himself down on the platform as she returned from paying their fare. She hopped up on the platform too, choosing to sit with her legs dangling off the back. Once she was seated, the horses lurched forward, even though the driver had not looked back at her once.
+
+The old steel wheels scrapped and groaned at first, but soon enough, they were rolling along quite smoothly. "I can only guess the roads aren't in great shape," the man muttered to her. "This seem awful elaborate just to carry people from point a to point b. But maybe there's something else going on." He turned back to himself and didn't talk for a while.
+
+She watched the station get smaller and smaller until the tracks veered at it slipped out of site. From time to time, the road would appear in view again, often below them as they crossed a bridge. In fact, the pieces of road that they saw were is bad shape. Many were blocked with stalled cars, or intentionally stalled cars. Or the roads where turn up with potholes either from weather or people.
+
+The old man scooted around to sit side by side with her. In as covert a way as he could manage, he folded up the piece of map he had shown her earlier into a thin strip of paper. The tracks they rode on now ran at a slant across the strip of paper that they showed her, leaning into her to keep the map hidden.
+
+Wordlessly, his finger traced the track for her. Her eye followed her finder. The tracks went quite far north. Up ahead on the map there seemed to be some kind of large green space by the water. Further past streets reasserted themselves in orderly grids. His finger stopped at the shoreside powerplant from which all of the streets seeemed to radiate.
