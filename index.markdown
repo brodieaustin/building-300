@@ -673,3 +673,145 @@ She watched the station get smaller and smaller until the tracks veered at it sl
 The old man scooted around to sit side by side with her. In as covert a way as he could manage, he folded up the piece of map he had shown her earlier into a thin strip of paper. The tracks they rode on now ran at a slant across the strip of paper that they showed her, leaning into her to keep the map hidden.
 
 Wordlessly, his finger traced the track for her. Her eye followed her finder. The tracks went quite far north. Up ahead on the map there seemed to be some kind of large green space by the water. Further past streets reasserted themselves in orderly grids. His finger stopped at the shoreside powerplant from which all of the streets seeemed to radiate.
+
+Chapter 11: The Hotel
+
+The cart's bump and rattle started as a annoying distraction, agitating her senses. But the further they traveled on those hobbled roads in the mute heat of the day, she grew more and more tired. Without realizing it, she had fallen asleep. A strong jolt from a particulary deep break in the road jolted her awake. She sat upright, almost in a panic, but saw the man sitting next to her, nodding off as well, and her senses refocused on their surroundings.
+
+The driver kept his back to them, seemingly uninterested in who these travelers might be. She wondered whether he was deeply curious, or, like so many, had learned to focus on the passing moment, not concerned with things that concern couldn't comprehend.  
+
+The man's head jerked forward and woke him up too. He went through the same reorientation process that she just had. They were both used to fits and starts of sleeping in this world they lived in. Sleep wasn't a refuge or escape, just a brief pausing of what continued around you.
+
+He looked ahead and said, to himself or her, she wasn't sure. "Road looks worse than before." He shifted aroudn more, "In fact, I'd say it was torn up on purpoase. Look at it...its almost a pattern." She followed his pointing finger and could see the same. The road seemed to have hatch marks drawn across it by a hasty hand; hasty but effective. "Barely looks like a road anymore," was his final comment.
+
+She wondered if that was the effect. No road meant the end of the line if you didn't know what you were looking for. Someone had gone through a lot of trouble to keep unwanted visitors out. She wondered who that someone or someones might be.
+
+The trees and brush was starting to thin out around them. She started to notice a light dusting of sand here and there along the road. Off in the distance, she could here the sound of waves barrel rolling overthemelves. She tapped the old man's shoulder and pointed at her ears. "Hmm, what's that? Yeah, I hear it too. Back to the shoreline for us."
+
+The old man cupped his hands up to his mouth and shouted ahead, "Hey there...driver. We almost there?"
+
+The driver nodded and pointed ahead to a fork in the road. A wooden sign with white arrows and had been splashed with blue paint making it unreadable. The trees became more numerous, in fact, the land around them almost seemed to be tended. It wasn't the wild overgrown tangle that she was used to seeing nearly everywhere.
+
+She realized that the pavement was smoothing out too as they veered off to the right. There was another, larger sign. This one wasn't painted over. Rather it was painted over, but had been repainted and lettered, meticously to read, "Paz-al-Lago"
+
+They followed this short section of smooth road before the low lying blocky expanse of an old hotel appeared ahead of them. The road they were on split into a parking lot, no cars parked in it, but it was conspicuously free from weeds.
+
+To her eyes, it was all smooth crisp lines, gleaming white, all radiating towards the water just a few hundred fee away. The whole hotel seemed to be made of endless panes of glass, unbroken glass and only one boarded up window to be seen.
+
+The grounds, the glass all communicated to her that this was no derelict refuge. Whoever was here, and whoever was brought here, would find themselves in a kept up building. With, most surprising to her, light. Even in the late afternoon, she would see lights lit up in some of the rooms.
+
+They continued on as the road arced to the left in a semi-circle that made up the entrance to the hotel. Only they didn't stop at the main entrance, they continued along, turning again, passing under an underpass that seemed to lead to the behind the scenes part of the hotel.
+
+They want a little further on across a parking lot then another drive that led a series of smaller buildings. These buildings seemed to have been hastily made, really nothing more that shacks, but they were nestled into the trees. Whether they were located there for shade, protection, or to keep them out of site, she couldn't tell.
+
+It was only here that she saw the first sighting of another actual person. Behind them, were two people washing windows. In the other direction, she could see someone walking the beach, stopped up periodically, as if collecting something from the ground. They also passed a row of bikes that had been chopped up to pedal large carts filled with an assortment of rusty tools.
+
+At the last cabin, the driver stopped and hopped down from his seat. She got down first and helped the old man hop down as well. They grabbed their gear and followed the driver up the steps to the entrance. The driver opened the door and motioned them inside. "You have to stay here for 24 hours. Not allowed to leave. Someone will come get you when it's time," he explained, mumbled more than spoken, and turned back to his carriage.
+
+She stood there with the old man, who seemed as confused as she felt. Were people living here at this hotel? Why was it being kept up in this way if there weren't? Even if there were, she couldn't remember the last time she had set foot on a little piece of orderly land like this. Everything in her field of view was barren, broken, or overgrown.
+
+"Well, guess that's it for the welcome wagon. Sun's going down soon. Might as well take them up on their over of this shelter for the night," the old man said. He stepped ahead of her to clear the three steps up to the shack's door.
+
+The door was set on hinges and whiny spring, like you would find on a sliding glass door. The door was really nothing more than a piece of plywood mounted to a simple two by four frame. It snapped shut back in place as soon as she cleared the doorway and let go of the door.
+
+The cabin had two windows on either side opposite the door. Two mattresses were piled up in the corner. They smelled strongly of some kind of disinfectant. There was no other amenities to speak of, other than an electric heater opposite the mattress and a single bare bulb hanging from the ceiling.
+
+It was dark enough that the man reached up for the beaded metal pull for hte light and clicked it on. The naked metal coils in the bulb light up a hot yellow glow. The light almost hurt her eyes. She couldn't remember the last time she had seen electric light.
+
+"No energy shortage around here," the old man said, adjusting a knob on top of the heater, which started to glow and radiate heat immediately. A strange smell like burning dust filled the space then dissipated once the heater ran for a few minutes.
+
+She nodded in agreement. This cabin, much like the door was nothing more that plywood and two by fours that had been hastily hammered together. Away from the heater, the walls were so thin that it was already starting to feel cold inside. But there was an electric heater and light bulb transforming power into light and heat without a care in the world.
+
+They spent the next hour checking their gear, fishing out a few cans of food. The old man warmed up their food on the heater. Even the lukewarm meal was satisfying to her. They went to rearrange the mattresses and then she noticed the sheets.
+
+She held up a stack of neatly folded sheets on the mattresses. She picked them up and ran her hands over them. The sheets were not soft, but that wasn't what made them notable to her. In fact, it was their starched stiffness that seized her attention. And her fingers. She couldn't help put run her hands over the swaths of stiff startched fabric, marvel at the crisply folded edges.
+
+With the mattresses arranged, they unfurled the marvelous sheets over the mattresses and prepared to sleep. She rolled on her side towards the wall, pretending to fall asleep, but really just lay there staring at the plywood floor's wood grain, tracing out the shapes of faces, of evil creatures sneering in the swirl of lines.
+
+Ch 13: On the Beach
+
+The next morning, a chorus of birds woke her up just a light was starting to break into the day. She rose up from the mattress, scattering the smoke from her breath as she did. She grabbed her coat and shoes carefully opened the spring loaded door to peek outside.
+
+As she opened the door, the birds scattered from the trees and around the cabin. Where they had been loud and scittering, she could not hear the water's loud rumble greeting her. No one was around, so she slipped her shoes on and headed down to the beach.
+
+Veering towards the hotel, she pickup a paved path that led from a veranda that stretched across the back of the hotel. She glanced back up at the windows overlooking the water and only saw shut drapes.
+
+The beach surprised her, rather the sand did. Compared to the rocky scrabble of the beach around her building, this sand was almost luxurious. Even in the cold, she footed her shoes off and walked with barefeet, letting the sand curl up around her toes.
+
+She wasn't there to amble along the beach, but she did walk a ways, always keeping the hotel in sight. Somehow her fear of the water and exposure out in the open slipped away in this seemingly normal moment from a life she barely remembered.
+
+That life and that person, the other her. Those weren't things she dwelled on. A grim survivor in a shelter had once given her lecture about clinging to what was, "That ain't coming back. Those tears ain't worth a thing." So now, she just didn't think about those things at all.
+
+But in this moment on the beach, one memory did somehow slip through. It was really more of an instinct than a memory, the body's impulse to economize motion by storing up things it used to do. And this impulse came to the fore when her eye caught a glint of green polished glass in the sand. She bent down, almost without thinking, and picked it up.
+
+She picked at the piece of glass with her finger, turning it back and forth. Her finger traced the bumps of what must of have been a soda bottle. Again, without thinking, she pocketed the glass, her eyes already darting ahead to find more.
+
+She scoured the beach for bits of brown, white, and green glass. She could start to hear them clinking in her pocket now. She was so entranced by the search, that she was startled to see how far she had come. The hotel wasn't in sight anymore, a fact brought to the fore by a snap branches and someone came breaking through the brush along the water's edge.
+
+She looked up towards the sound and crouched down in fear. A man appeared on the edge of the beach. He stopped when he saw there. She studied him momentarily, making the split decision about the threat he posed, a quick decision making process she was hardly conscious of these days.
+
+What she assessed surprised her greatly. The man looked like someone had stepped out of some other world, the old world, the world that had been. He didn't seem to belong to this world at all. His face was ruddy and healthy looking, smooth too, like it had recently been shaved. His hair, though tousled by the cold morning breeze, was cut. A glint of sweat covered his face like he had been exercising.
+
+He seemed well-fed, generous. He wore clean clothes, althetic wear that seemed like it fit him, not like clothes that had been wrested off of a dead body out of necessity. He was smiling at her and walking towards her like it was completely normal to meet someone on the beach and casually say, "Hello," which was what he said, with a hand extended no less.
+
+"Hi, there...Don't run," he said, flattening his hands towards her. "I didn't mean to startle you. I was just out for my morning run." The man inched a few steps closer. She moved back too, but only one step for his two. Her body was screaming at her to run, but she was so captivated by this strange, timeless man, that she couldn't fully commit.
+
+"I always cut through here to finish my run on the beach. See..." He pointed back over his shoulder to  roughshod place in the brush. It did seem like someone had repeatedly trompled through there.
+
+"Are you from the hotel?" he asked. She looked back at the hotel and nodded. "You're new then. I don't recongize you." A breeze kicked up behind her. He seemed aware of the unwashed scent of fear that must have covered her, a smell she didn't register anymore. "Yes, you must be very new. Xavier doesn't usually let the new recruits go about like this," he said, almost an aside to himself.
+
+"What's your name?" he asked. She stared down, not willing to speak that word, even for this person who might as well have been a figment of her imagination. "Really, you can tell me..."
+
+Just then she felt hands grab her from behind, not violent, but protective. She could sense the old man now, standing there, shoring her up. He was panting from the exertion. "Are you okay?" he said breathily. He looked across at the man, "Who are you?"
+
+"Now, friend, that's no way to talk to a stranger. I might as well ask you. After all you're on my beach."
+
+"Your beach?" the old man said.
+
+"Well not mine personally, but this beach is part of the complex. And I am part of it as well. So, let me ask, who are you? And this charming young woman with you?"
+
+"My name is Randall. This is...well I don't know. She doesn't talk much."
+
+"Some kind of injury?" the man asked.
+
+The old man shrugged, "Don't know. I just met her a few days ago and she hasn't said a word to me yet."
+
+"I see," the man replied. He seemed to be elsewhere all of a sudden, following a train of thought. "Well, you must have a busy day ahead of you. I recommend heading back and waiting for Xavier. He always come around for the new people."
+
+"Okay," the old man replied. "We'll do that. Come on," he whispered to her. "Let's get out of here."
+
+They started to walk back down the beach. The man began his jog and passed by them easily. He disappeared up ahead into the interior of the hotel, confirming that at least one person lived there. Two, if you she included this person, Xavier.
+
+As they headed back to the cabin, she noticed that there was more activity around the hotels. People were starting to move around the grounds, sweeping, pruning, wiping down. A few of the curtains were pulled back, the windows glinting in the morning sun.
+
+"We're going to grab our stuff and make a run for it. This place is giving me the creeps," the old man said to her. She silently agreed with him.
+
+They wouldn't have a chance to run though. A man stood in front of their cabin, holding a clipboard, wearing a suit of all things. As they got closer, she noticed how perfectly groomed he was. She even caught the faintest musky hints of cologne in the air.
+
+She imagined that this man looked like a concierge at a hotel must have, someone who worked to smooth over the minor complications that the rich experienced. And in the midst of everything, however unlikely it was, this man stood there, in front of their dilapidated cabin, perfectly comfortable and at ease.
+
+Much like the jogger on the beach, this man seemed absurdly out of place. But he seemed perfectly comfortable with the task at hand, which seemed to be waiting for them and intercepting them. "Leaving your cabin this soon is very irregular, but I have been given special instructions," he said, rounding behind them and practically pushing them toward the motel.
+
+"You're a little...rougher than I was led to believe. No matter, I will oversee your transformation personally."
+
+"Transformation?" the old man asked, his question completely ignored.
+
+The man, Xavier, ushered them through a metal door that led into the hotel's mechanical room. She reeled a bit at the wall of hot, steamy air as they passed by the boilers, then washing machines. The man led them through a maze of passageways until they reached two locker rooms for men and women.
+
+"Go, get cleaned up and changed. Uniforms are in the cabinets. Put your..." he looked them over "...belongings in the in the hamper to be cleaned."
+
+She went in to the women's locker room and found the shower stalls. Grabbing a towel from a stack of them by the showers, she walked to the last of three stalls in the room. The stall was divided into two sections, each one divided by a curtain. She removed her things and piled them up neatly, tightly on the plastic bench. She shivered, not being used to being exposed to the air like she was now.
+
+She slipped quickly in to the shower and turned the levered handle to hot. At first cold water hissed over her, causing her skin to go goosepimply. Slowly, then suddenly, the hot water started to pour out over her, enveloping her luxurious cascading sheets. She looked around for soap and only saw a few ragged fragments, but that would do. She scrubbed and scrubbed at the dirt on her hands, watched as the grime swirled over the tiles and down the drain.
+
+The hot water gave out after a few minutes, leaving her body mostly clean but hungry for another one. She tried to turn the shower back on, but only cold water came out this time. Assuming the water must be metered, she gave up sustain her momentary dream of soapy clean and shut off the water and started to dry off.
+
+With the towel wrapped around her, she walked to the cabinets opposite the lockers that Xavier has mentioned. Sure enough inside were small piles of maroon uniforms. She picked one up and took it back to the bench where she got dressed.
+
+The old man was waiting for her in the hallway, already cleaned up. She wondered if she looked as half-clean and uncomfortable as he did. Either way, he said, "You look like you died and went to heaven." He smiled at her, and given the relaxed, nearly peaceful feeling she felt right now, she smiled back at him.
+
+Xavier reappeared, assessed them and said, "It will do. Come with me."
+
+Chapter 14: The Sandpiper
+
+They passed through another door and suddenly were standing in the hotel's lobby. She marveled to be surrounded by such clean, orderly surfaces. Everything from carpet, tiled floors, paint on the walls gleaming in the morning light. She marveled most at the light fixtures--glass cones and spheres suspended from the walls and ceilings. None of theme were broken, even chipped, and they were all, all of them, lit up, even in the full light of the day.
