@@ -674,7 +674,7 @@ The old man scooted around to sit side by side with her. In as covert a way as h
 
 Wordlessly, his finger traced the track for her. Her eye followed her finder. The tracks went quite far north. Up ahead on the map there seemed to be some kind of large green space by the water. Further past streets reasserted themselves in orderly grids. His finger stopped at the shoreside powerplant from which all of the streets seeemed to radiate.
 
-Chapter 11: The Hotel
+# Chapter 11: The Hotel #
 
 The cart's bump and rattle started as a annoying distraction, agitating her senses. But the further they traveled on those hobbled roads in the mute heat of the day, she grew more and more tired. Without realizing it, she had fallen asleep. A strong jolt from a particulary deep break in the road jolted her awake. She sat upright, almost in a panic, but saw the man sitting next to her, nodding off as well, and her senses refocused on their surroundings.
 
@@ -728,7 +728,7 @@ She held up a stack of neatly folded sheets on the mattresses. She picked them u
 
 With the mattresses arranged, they unfurled the marvelous sheets over the mattresses and prepared to sleep. She rolled on her side towards the wall, pretending to fall asleep, but really just lay there staring at the plywood floor's wood grain, tracing out the shapes of faces, of evil creatures sneering in the swirl of lines.
 
-Ch 13: On the Beach
+# Ch 12: On the Beach #
 
 The next morning, a chorus of birds woke her up just a light was starting to break into the day. She rose up from the mattress, scattering the smoke from her breath as she did. She grabbed her coat and shoes carefully opened the spring loaded door to peek outside.
 
@@ -812,6 +812,6 @@ The old man was waiting for her in the hallway, already cleaned up. She wondered
 
 Xavier reappeared, assessed them and said, "It will do. Come with me."
 
-Chapter 14: The Sandpiper
+# Chapter 14: The Sandpiper #
 
 They passed through another door and suddenly were standing in the hotel's lobby. She marveled to be surrounded by such clean, orderly surfaces. Everything from carpet, tiled floors, paint on the walls gleaming in the morning light. She marveled most at the light fixtures--glass cones and spheres suspended from the walls and ceilings. None of theme were broken, even chipped, and they were all, all of them, lit up, even in the full light of the day.
