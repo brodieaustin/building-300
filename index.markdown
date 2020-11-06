@@ -815,3 +815,53 @@ Xavier reappeared, assessed them and said, "It will do. Come with me."
 # Chapter 14: The Sandpiper #
 
 They passed through another door and suddenly were standing in the hotel's lobby. She marveled to be surrounded by such clean, orderly surfaces. Everything from carpet, tiled floors, paint on the walls gleaming in the morning light. She marveled most at the light fixtures--glass cones and spheres suspended from the walls and ceilings. None of theme were broken, even chipped, and they were all, all of them, lit up, even in the full light of the day.
+
+"So you," Xavier said looking at a clipboard, "I believe you are Gerry, you will be on cleaning detail. Go upstairs and join the group that is up there now cleaning pictures and windows."
+
+The old man looked at her tentatively. She gave a half-nod and he followed the path being pointed out to her. "And you are...Sharon, it says here. Let's see. Now that's odd. Your assignment has been crossed out and written over." She didn't know what that meant; she also wasn't sure why she was being called Sharon. In any case, Xavier stood there flipping through his clipboard. He seemed uncharacteristically flustered by whatever change had been made. He muttered under his breadth, "So much for orderly ways of doing things." He took a breathe and looked at her head on and said, "You have been assigned to the Sandpiper. So, right this way."
+
+She followed him down the lobby near the hotel entrance. Across from the entrance, there seemed to be a dining room, the space defined by a series of carved screens. Much like everythign else, the dining room was in perfect order. Chairs and tables all lined up and pushed in. Clean plates, crips napkins, and orderly silverware had been placed on each table.
+
+In the far corner, near the windows that looked out over the water, a couple was eating breakfast and drinking coffee. They nodded in recognition at Xavier and went back to their meal. Xavier led her past these people and the dining room to another section that was secluded and out of way, proper walls here instead of carved screens and a door as well. To the right of the door was a sign that read "The Sandpiper Lounge" with a few small round brown birds resting at the margins around the words.
+
+The room was darker here from the wall coverings to the lighting. Recessed lights, lit up much like the lobby lights, throw cones of orange light down in discrete shapes around the room. The tables were smaller here. Along the back wall, a woman, wearing a uniform similar to her own, stood behind a bar.
+
+As they approached, the woman leaned forward on the bar supported by outstretched arms. She raised an eyebrow at Xavier; the woman didn't give her a single look. "Really, Xavier? This is what you're bringing me?" she said in a raspy voice.
+
+"Max, I'm following the plan," he responded, holding the clipboard out to her and tapping it a few times. Her eyes scanned over it. She squinted and drew closer and further away as she did. The woman obviously couldn't see that well. But her eyes did seem to find their way to the crossed out spot in the plan.
+
+The woman took a deep breathe and exhaled, turning back to the bar, "Well that settles that then."
+
+"Yes, it does."
+
+With her back turned, Max gestured with a half-arm wave and said, "Get on back her and let's see your skills." Xavier nodded her towards the woman too.
+
+Taking her cue, she rounded around the bar and found herself staring at a wall of bottles, standing next to Max. Looking over the bottles, she had no idea what most of them were. She did notice that many were partially full. She wondered how long this supply would last and what would happen if it ran out.
+
+"I will leave you two to it," Xavier said, turning on his heel to leave.
+
+The woman waved her arm across the bar and said, "Welcome to the Sandpiper Lounge, where we keep the drinks flowing and the clientele happy." She turned to face her, "You ever mixed a drink before?"
+
+She shook her head "no" in response.
+
+"Huh," Max replied. "Never mixed a drink and yet here we are." She grabbed two bottles off the shelves and sat them in front of her. "Know the differnce between these two?"
+
+Again, she shook her head "no."
+
+"Look, you can cut the cute act with me, just say 'yes' or 'no', okay? So we're really starting from nothing here. Okay, I can make this work. You're on the plan after all. What's your name, by the way?"
+
+She suddenly felt very uncomfortable not responding, but couldn't and wouldn't form the words. She could only think to point at her mouth and wave her hands to indicate no.
+
+"What's that supposed to mean? You don't talk? Is that it? Not a word? Well, that sly... Now I see why you're here. Guess they think you're pretty good at keeping secrets. I certainly keep my fair share, but I guess even I'm a risk."
+
+Now that Max had her secret to carry, she set to work teaching her what her job would be here--mixing drinks in the Sandpiper Lounge for...someone. She still wasn't entirely sure, and Max didn't let on, who would actually be consuming these drinks. She assumed she would find out soon enough.
+
+In the meantime, she learned the basics of mixing cocktails, "the regulars for the regulars," as Max called them. She started to lose track of time in the lounge and only figured it to be later in the day as more people began filling the dining room. She could just catch a glimpse of the people sitting at the table, but could tell that the people seemed well-dressed and very clean.
+
+As the room became more full, she found it harder and harder to concentrate. She wasn't used to hearing so many voices at the same time. Her life had been reduced to only the basic sounds that a person could make, and usually only one of those at that. Perhaps noticing her distraction, Max pointed her off to the side to rack with glasses and a sink. "Why don't you focus on something else and wash these glasses." When you're done, you can take a quick break. There's a door to the kitchen over there." Max pointed to a door that was the same color as the walls, barely noticeable if you didn't know where to look.
+
+With the glasses cleaned, she passed through the door into a large kitchen area filled with shiny silver kitchen equipment--enormous stoves and cooktops. Lines of sinks with large sprayers attached. Food prep and serving stations. Everything a kitchen like this would have needed to operate. There were a handful of people working in the kitchen, but it was obvious that the kitchen could have handled many more people.
+
+One of the kitchen workers, a woman with her hair up in a net, looked up at her and pointed to the back. As if knowing why she was there, the woman was pointing her towards small room with a char and window out ont the kitchen. It must have been an office at some point, but now seemed to serve as the staff's breakroom. There was a single metal chair with roughly textured cloth seat and back. The back wobbled when she sat down and tried to lean against it. Instead of a desk, there was a small round table next to the chair with a lamp, ash tray, and a few old magazines on it. The magazines were dog eared and faded. One had its cover taped and retaped to it.
+
+Sitting in the chair, she pulled her legs up and rested her head on her knees.
