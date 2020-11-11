@@ -862,6 +862,175 @@ As the room became more full, she found it harder and harder to concentrate. She
 
 With the glasses cleaned, she passed through the door into a large kitchen area filled with shiny silver kitchen equipment--enormous stoves and cooktops. Lines of sinks with large sprayers attached. Food prep and serving stations. Everything a kitchen like this would have needed to operate. There were a handful of people working in the kitchen, but it was obvious that the kitchen could have handled many more people.
 
-One of the kitchen workers, a woman with her hair up in a net, looked up at her and pointed to the back. As if knowing why she was there, the woman was pointing her towards small room with a char and window out ont the kitchen. It must have been an office at some point, but now seemed to serve as the staff's breakroom. There was a single metal chair with roughly textured cloth seat and back. The back wobbled when she sat down and tried to lean against it. Instead of a desk, there was a small round table next to the chair with a lamp, ash tray, and a few old magazines on it. The magazines were dog eared and faded. One had its cover taped and retaped to it.
+One of the kitchen workers, a woman with her hair up in a net, looked up at her and pointed to the back. As if knowing why she was there, the woman was pointing her towards small room with a char and window out ont the kitchen. It must have been an office at some point, but now seemed to serve as the staff's breakroom. There was a single metal chair with roughly textured cloth seat and back. The back wobbled when she sat down and tried to lean against it. Instead of a desk, there was a small round table next to the chair with a lamp, ash tray, and a few old magazines on it. The magazines were dog eared and faded. One had its cover taped and retaped to it. Sitting in the chair, she pulled her legs up and rested her head on her knees.
 
-Sitting in the chair, she pulled her legs up and rested her head on her knees.
+Just as her eyes started to close, a suprised voice woke her up. "Ah, sorry, I didn't know anyone was in here." Frozen in mid-stride, a young man about her age stood here, same uniform as everyone else. His hair was trimmed and his face smoothly shaved. She dedicated some kind of accent, but couldn't place it. "I didn't mean to bother you. My name is Alex," instinctively he held out his hand to shake, but she declined it.
+
+"That's okay, I get it. It's pretty different around here. You're new right?" She shook her head. He leaned in, "I heard you can't talk. That must be weird." She smiled in response. "I know, it's crazy how word gets around. But that's what's it like. Like I said, it's different here. But, I've only got a few minutes to take a break, so I'll just..."
+
+Before he could finish, she got up and slipped past him to return to the lounge. "Oh okay, you didn't have to..." but he was already drowned out by the clash and clatter of kitchen sounds.
+
+She resumed her place back in the lounge. Max wasn't in the lounge at the moment. She could see her standing out in the dining room, talking to someone else in uniform. She wondered how people knew about her already. Xavier? Max? She felt like she trusted Max more already, given that Max was already starting to warm to her.
+
+When Max returned back to the bar, she said, "First shift will be starting soon, so get ready."
+
+Within a few minutes the people began to filter in to the lounge. One man sat at the bar. Another group--two men of roughly the same age--sat in a far off table. Max took her around the room and introduced her as "the new girl." They all said pleasant enough "how do you dos," even if they were tinged with hungry tones.
+
+They took drink orders and went back to the bar to start mixing drinks. The man at the bar only asked for bourbon neat, and Max let her take care of that herself. The man at the bar, acknowledged her with a head nod and nuzzled into the comfort the drink seemed to be giving him.
+
+Things continued this way into the evening, when Max finally turned to her and said, "That's enough for your first day. I'd say it was time for you to head back and get ready for tomorrow."
+
+She wasn't expecting to be shown the door so soon, but could feel the wear and tear of working, of being watched by so many people. It was as if existing in this bubble of a normal world was more trying and taxing that the world that really existed.
+
+She turned to leave through the lounge's front door, but Max gently held her back by the arm, "No, honey, we leave by the back door. Enter that way too." So, she dodged her way through the kitchen again, down a narrow hallway to a door with a small pane of glass criss-crossed by wire.
+
+She leaned into the crashbar and entered into the chill of the early evening air. The early evening light that accompanied the early evening air still made her eyes flinch. She had been inside the Sandpiper's dim four walls so so many hours now. Even though the air and light was startling, and she hugged herself in the chill, her body suddenly felt looser than it had. She felt the weight of working lift from her. Again, she could hardly believe that she felt this way out in the open, exposed to the world. But here she was, wearing a uniform, walking back to the barebones cabin, seemingly part of some oasis of the old world that someone willed into existence.
+
+Ch 15: The Visitor
+
+She woke in the morning in a daze, hardly aware that she had even fallen asleep the night before. The cabin seemed colder than before, even under the threadbare blanket that had been placed over her. The old man was already up and getting dressed. "Good you're finally awake. I'm expected to report for work soon. When are you due back?" She shrugged in response.
+
+"I heard you were assigned to some kind of bar or something," he said. Again, she was surprised that she was the subject of so much discussion. "You're really the talk of the town, so to speak. Apparently working the bar as a new arrival is very unusual."
+
+She sat up and looked over at two piles of neatly folded clothing, sitting by their packs. He seemed to understand what she was thinking, "No, not yet. I think we need to stay put a while longer. I think we can get some valuable information. I may even be able to learn more about my son."
+
+The idea of working for days and days in the Sandpiper was not a thrilling one to her. She had a hard time imaging being able to be confined in those walls with those people serving their drinks, smiling at their jokes, ignoring their whispered conversations.
+
+"The word is that some important visitor will be here in a few days. I think you'll be able to get the inside track on who this person is. Apparently only the most important residents are able to make use of that bar where you're working." The old man had been hard at work collecting information. "Maybe when you get back we'll be able to figure out what's going on and make a plan. But for now, I'm going to keep my head down and get to work. But it ain't easy working like this after what I've been through."
+
+He left in alone in the cabin. She scrounged for a something quick to eat to tamp down the hunger she felt. Not sure what else to do with herself, she put her uniform back on and started toward the hotel. A few workers waved to her now as she walked along. Their friendly gestures surprisingly made her feel better, happy even.
+
+She found her way back to the service entrance to the kitchen. The echoing clatter of dishes greeted her, along with a hot wave of air from the kitchen. She entered the kitchen to find Max, a man she had seen in passing in the kitchen, and another woman.
+
+Max looked her over, "Well you look a little better than you did yesterday evening. Don't worry you'll get used to it. Hungry?" She nodded. "Carl usually fixes the kitchen staff something to eat in the morning before our shifts start." The other woman dragged a stool over to the large stainless steel table in the middle of the room where they were sitting.
+
+Once she sat down, Carl put a plate of what looked like the most traditional breakfast imaginable in front of her. Steaming eggs, bacon that still seemed to sizzle around the edges, and two perfect triangles of toast.
+
+She stared at the plate in wonder, as if she had been shwon the most precious artifact that had been hidden away, undiscovered, in some obscure vault. "It's okay to eat it, you know," Max said.
+
+The other woman nudged Max's arm, "You don't give her a hard time. You've been here so long you don't remember what those first days are like..."
+
+"Well it's not like you arrived just yesterday yourself," Max replied.
+
+The other woman looked at her, "I'm going on a year, but you wouldn't know it from the way this one treats me. My name is Rosario, by the way. I heard you don't talk, so you don't have to worry about saying anything. Just eat up."
+
+As she ate the simple, luxuriously hot breakfast, she listened to their chatter about people and their antics, people who must have lived in the hotel. One story involved some complicated deception, but she couldn't keep the people straight, leaving her without any idea who had done what.
+
+Even though she couldn't follow the intricate ins and outs of their conversation, she was aware of how all of the little details about life inside the hotel shut out everything else. These people, sitting on hard stools around the stainless steel table, stealing a few moments for themselves before their days full of work began seemed content, even happy. The scenes of terror and ravage had fallen from their faces.
+
+These were survivors, but not like the survivors she was used to scurrying past at a distance, never sure if someone's desperation would lead them to do something previously unthinkable. She certainly had. She wouldn't dwell on it, but she knew it. Even the memory of the crashed flattened car and weak cries for help flashed in her mind. She had so thoroughly learned to ignore such pleas for the traps they might be. Until the old man washed up in her life. Now she was here, on this journey, waylaid in this strange hotel, carried on a current charged with something between hope and despair.
+
+"Hey, ready to get to work," Max said, shaking her shoulder gently. She obviously had been lost in some kind of reverie thinking about these people and this situation. Even the luxury of losing herself in thought struck her. "It's time. Busy day today."
+
+Rosario helpfully cleared her plate, "That's right, new shipments coming in today. Big time trader, I hear. I bet Carl here can't wait to stock up." Carl just laughed and nodded as he cleaned dishes.
+
+Back in the lounge, she and Max started up the routine she began learning the day before--washing, arranging, getting ready for the guests. Max always called them guests, never customers. She hadn't seen any money trading hands, so room charges or credit cards, no barter even, which would have been much more likely. Or if there was barter it happened at some time and place that wasn't obvious to her.
+
+She kept at her work, occasionally wondering what the hold man was doing. But there wasn't much time for this. She had recipes to learn, citrus to prepare, "Not many of these left," Max said, turning over a lemon in her hand. "We'll see if we get more today. Mr. Hawthorne enjoys a twist in his drinks."
+
+As the morning proceeded, she learned a bit more about Max, but not much. She never said much about the hotel, speaking in vague generalities, or specifics that didn't make much sense, like who Mr. Hawthorne may or may not be. It was clear already that Max had been at the hotel for a while now and was trusted, even relied upon in some ways.
+
+It was also clear that the Sandpiper Lounge served an important role in the hotel. When this visitor arrived, he was expected to spend a good deal of time in the lounge. She had to wait until that he arrived to understand what exactly that would mean.
+
+Starting around lunch time, guests started filtering in to the Lounge, sometimes alone, sometimes with a small group, like before. She recognized a few faces from the day before, but there were a few new ones too. There were introduces, pleasantries, mild flirtations from men much older than her, and drinks. Many drinks.
+
+The mood seemed to be almost festive today, but the talk much more whispered between visitors. From the fragments she could pickup, much of the whispering had to do with today's guest and the shipment.
+
+Finally, the moment that had been the subject of so much speculation arrived. She only realized what was happening when she saw Xavier enter the lounge and talk to Max. Max nodded her over and said, "The visitor is here and we're supposed to assemble outside."
+
+At the time, she cleaning glasses in the small bar sink. She tried to rinse the acrid smell of cleaner from her hands, then dried them off to follow Max outside.
+
+She hadn't seen the front of the hotel since their arrival. All of the hotel's workers must have been standing in the semi-cicular drive in a neat and orderly line. Xavier took extra care to ensure that it was in fact a tight, orderly line. She glanced over and saw the old man, looking worn from his day's work, but alert and ready to absorb whatever new information he could. He quickly acknowledged her, but snapped back to attention.
+
+At first the sounds was faint, but then grew louder. She could hear the creak and clop of horses and carts approaching from the road. The driver that had brought them here was the first to round the corner, followed by another cart. Both were filled with barrels and boxes, sacks of goods. She couldn't remember the last time she had seen so much...abundance assembled in one place.
+
+Finally another horse and cart appeared, but this one was more like a carriage, really more like a stagecoach that she had seen in old picture books of the wild west. Several men on horses trotted alongside the carriage, with rifles cradled loosely in their arms.
+
+The three carriages and horsemen came to a stop in front of the hotels. She found it strange to see these rustic, dusty carts and horses stopped in front of the hotel's concrete, metal, and steel. The horses stamped and padded on the ground while the cart drivers and horsemen were still.
+
+Xavier stepped out from the semi-circle of workers and approached the carriage. He flipped down a square of metal beams that was mounted to the carriages side by crude, but very strong looking bolts. Xavier opened the carriage door and the carriage passenger stepped down from the carriage, onto the step, and then graced the concrete.
+
+The passenger wore a long flowing coat over a dark colored suit. He wore a tie, knotted loosely under a once stiff color. The man wasn't as clean cut as the men she has seen in the hotel, but he did have the same comfortable, well-kept look about him. He seemed at ease, completely in control, not at all worried about the horrors that stalked the everyday world.
+
+"Impressive," the man said, looking at the staff. "Many mouths to feed. I hope my supplies will keep all these helping hands healthy and productive for you."
+
+"No doubt Lord Grainger," Xavier replied.
+
+"So where are my esteemed hosts?" the visiter, Lord Grainger, replied.
+
+"They should be here shortly..."
+
+Just then the hotel doors opened. She looked over her shoulder and caught a glimpse of the man from the beach, holding the arm of an older woman. She wore a long flowing dress, flowery like a beach dress, even in this early winter weather. She wore large sun glasses. Gold and jewels glinted from every possible place on her body.
+
+"See mother," the younger man said, "I told you he would arrive exactly when he meant to."
+
+"Not on time, I would say," the woman, apparently his bother replied with a tone that even from a distance, she could hear the acid in it.
+
+"Mother, be generous. Lord Grainger is our best and most reliable supplier. Let's be nice, mmmkay?"
+
+They both stepped half way down the walk and took a few steps down, but stopped, like royalty, waiting for the visitor to approach them. The visitor had an amused look, but also tinged with annoyance, but conceded to their postion by advancing the rest of the way towards them. He shook the man's hand and kissed the woman's. "A please to visit Paz-al-Lago, as always," he said.
+
+"As always, we're pleased to have you here, Lord Grainger," the man said. "Let's let Xavier coordinate the help and get everything in order. I believe I owe you a drink from your last visit."
+
+"Yes, I recall that. I wouldn't say no to one after my journey."
+
+That was the cue for the workers to resume their work. Xavier led first and the rest of the group followed. She fell in behind Max and followed her back to the Sandpiper.
+
+For the first time in her brief time there, the lounge was brimming with visitors. A cheer went up as soon as she and Max entered the lounge with orders being shout out and lost in the din. "Get to work collecting those orders, it's going to be a busy day," Max whispered to her.
+
+Doing as she was told, she started circulating around the room and collecting orders. More than once she was pulled onto a lap, chatted up, and endured the veiled banter that passed between the men in the lounge, not directed at her, but about her.
+
+After an hour or so, the visitor and the man, who had presented himself as some kind of leader of the motel community, appeared in the lounge. Cheers and cries of triumph errupted in the room.
+
+She was in the midst of setting down drinks when glass started to clink in the lounge. Calls for a speech rang out. She didn't realize he was even nearby, but she realized that the leader's arm was suddenly wrapped around her waist. He gave little tug, the sligthest of pulls that could hardly be construed as such, but which altered her motion from walking away to being fixed by his side, causing the remaining drink on her plate to slosh.
+
+The leader took the least drink from her tray, raised a glass and started his toast, "What started as just an idea, a dream born in the dark days in a dark shelter, has now become a shining refuge for believers like us." A few "here here" went up. "Everything that was is behind us, we only have, and enjoy, what is here and now. But this dream wouldn't be possible without the tireless efforts of Lord Grainger." More clinking and clapping and "here heres."
+
+"He brings us everything we need from the outside, and nothing we don't. I don't know how he does what he does, and certainly don't want to know, but he does it. And because of his efforts, we live the dream. To Lord Grainger."
+
+"To Lord Grainger," the crowd responded and emptied their glasses. As if on cue, she was released from the leader's embrace and with another gentle push was propelled back to the bar to fill the now empty glasses.
+
+It was many hours later before Max finally released her from the lounge. At this point, there were only a few straggler left. "I'll see them out myself," she said. Released into the dark, cold night, she stumbled back to the cabin, ready to toss herself onto the cold, makeshift bed with impeccable sheets.
+
+When she opened the door and stepped inside, she could tell, even in the dark, that something wasn't right. Something was missing. She scanned the room and realized that the old man wasn't there. Immediately, her mind rushed to the worse scenarios. He was injured. He was dead.
+
+A flurry of possible actions swarmed her mind. She had to find him. She had to do something. All she could think of immediately was to leave the cabin, to move. The door's creaking seemed more ominous as she pushed her way through. Standing on the roughly build stairs, she looked around. There were other cabins around them, the quarters for the rest of the workers. Maybe she could find Rosrio's cabin, or maybe Alex's.
+
+She approached the nearest cabin and gave a gentle knock on the door, not wanting to wake the entire work crew up, no matter how upset she felt. She knocked one more, this time with a bit more force so the door hopped in its frame.
+
+Even with this more forceful knock, no one answered. She tried another cabin. No one answered that one either. Same with the third. She paused in the midst of approaching the fourth, realizing that something else was going on and that continuing to knock on doors wasn't going to help her arrive at answers any more quickly.
+
+She stood there in the dark, irresolute, the swirl of possible actions still overwhelming her. She started when a voice behind her said, "Lost something?" She turned to see one of the riders from the Count's entourage walking towards him. "It's okay. If you're looking for everyone, I know where they are. Follow me."
+
+He walked past her towards, following the path between the houses to trail that cut a murky line in the dark woods. She could hardly tell that there was a path to take, but he seemed confident of where he was going, so she followed him into the woods.
+
+She could tell they were heading away from the water. At one point, the brush cleared enough that she could see the faint outline of an old parking lot through the trees. They kept going, however, further down the path.
+
+They continued for a while longer until she could hear a faint din of voices in the distance. They reached a clearing in the woods. Here she found herself surrounded by people, people she recognized but who seemed out of place. These people seemed loose and carefree. They weren't bound up in the generic hotel uniforms they all wore. These people were wearing their clothes from the other world, the clothes that represented the real version of themselves.
+
+Farthest from her, a small group was dancing while another played a harmonica. Most of the people here were huddled in small groups, around small fires, drinking from cups, trying to keep warm. When she appeared in the clearing with the man, a cheer went up. The man held up a bottle, which she hadn't even noticed he was carrying before now. He unscrewed the top and sent the bottle around for people to refill their drinks.
+
+A red cheeked woman who had been dancing broke off from that group and moved to towards them. Before the man who brought the bottle was pulled awy, he said to her, "A celebration. That was all. Only time they get to."
+
+With that he went twirling away with the dancing woman. She looked around and saw the old man talking with a few older men like himself, sitting on stumps and fragments of chairs. He stood up when she approached, "Are you okay? You look like you are scared to death." She shook her head to indicate that she was okay.
+
+He pulled her away from the group and spoke quietly to her, "I'm sorry I didn't tell you where I was going, but there was no way to send you a message in the lounge. No one would do it, not even Alex." She saw Alex over the old man's shoulder. She made eye contact with Alex, causing him to smile and nod in her direction. "Here," the old man said, handing her his cup, "take this and drink up. It'll make you feel better."
+
+Even though she had had her fill of sight and sounds of drinks, she tipped up the cup and felt the hot burn of the whiskey down her throat. This wasn't an entirely new sensation, but not one she had experienced many times before. In the smokey crisp cold, the smolder of alcohol moving through her was comforting and put her at ease. She followed him back to his conversation circle and absorbed the convivial atmosphere.
+
+Twenty or thirty minutes passed and the day's labors were starting to bear down on her. She could feel herself nodding off while the other were talking. She had no idea how these people who worked do hard from sun up to sun down could muster so much energy to dance and talk and drink. Realizing that she was so tired, the old man told the group that they were heading back to their cabins.
+
+He helped prop her up to standing. They sat off down the path.
+He didn't say much as they walked. It wasn't long before she realized that someone was following them. It took even less time for the rider to overtake them, though somewhat out of breath.
+
+When the old man realized what was happening, he stopped and turned and waited for the rider. As the rider grew closer, he looked at the old man and said, "Mr. Rider, is that you?"
+
+"Casey?" the old man replied.
+
+"Yes, sir, it's me," the rider replied., "'Course no one calls me that now."
+
+"Well I still remember a doughy faced boy playing with my son in the alley. Look at you know."
+
+"Hardned, like all of us. But I recognized you immediately, as soon as he arrived in front of the hotel."
+
+Pausing their conversation, the old man turned to her to paraphrase what was happening, though she was starting to get up to speed.
