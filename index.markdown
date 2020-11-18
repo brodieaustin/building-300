@@ -358,7 +358,7 @@ She looked in the direction of the water, wondering how his watery appearance on
 
 The only thing she could think of that was north was the hulking factory or power plant. "The rumor is that some group is getting the power plant up north fired up again. Gonna get it running and get us back to civilization, whatever that means."
 
-He shifted a bit, leaning back against the wall. He closed his eyes and pitched his head back against the concrete. "Oh what I wouldn't give for an aspirin right now. Getting old isn't kind and being old and getting pitched off a boat is even worse. Yeah, that's what happened. I had scavenged enough to get passage onboard one of those ferries. Pretty miserable actually. Thing moved slower than you can imagine and pitched every whichway in the waves. Waves are terrible these days. The lake ain't what it used to be, not that it was some little pond before."
+He shifted a bit, leaning back against the wall. He closed his eyes and pitched his head back against the concrete. "Oh what I wouldn't give for an aspirin right now. Getting old isn't kind and being old and getting pitched off a boat is even worse. Yeah, that's what happened. I had scavenged enough to get passage onboard one of those ferries. Pretty miserable actually. Thing moved slower than you can imagine and pitched every which way in the waves. Waves are terrible these days. The lake ain't what it used to be, not that it was some little pond before."
 
 "I started to get sick, really gut wrenching sick and threw up on a guard. Real touch looking guy, real beat up looking and ugly. Not like me of course.... So this real scary looking guy is covered in vomit and we get into a tussle. So he just pitched me overboard. Heard even worse happens to people that step out of line, beatings, shootings. You name it. At least I just hit the waves like a rock and was able to wash up on land. And then you found me."
 
@@ -432,7 +432,7 @@ Getting up topside wasn't too difficult, though she had to steady the man a few 
 
 Just up ahead and down the road were houses on each side, and then what looked to be a fenced off area. Further area, looming over the trees and the houses, she could just make out the top of a tower. She could see the lines of the roof and the gentle curves of windows that must be set along the tower's perimeter.
 
-The man nudged her, "We should head to that way. Maybe we can take a looksee from the tower and get a better idea of where we're going." He started to walk down the road towards the fenced in area.
+The man nudged her, "We should head to that way. Maybe we can take a look and see from the tower and get a better idea of where we're going." He started to walk down the road towards the fenced in area.
 
 She was frozen in place, reluctant to move. It was difficult to shake the fear and uncertainty of being out in the open, exposed like this. She had managed to only venture up when she needed to for so long, that not being burrowed in to the dips and recesses of the ravines and waterfront felt uncomfortable to her now. Even having someone with her didn't ease the anxious feeling she felt. It may have made it worse, had she stopped and really worked to unpack these feeling.
 
@@ -446,19 +446,19 @@ They both startled and stopped. A few more dogs joined the pack. The new ones fr
 
 She wished that the dogs had not been so loud. It really would have been fine if they just hadn't drawn so much attention to the two of them, but here they were, isolated in the middle of a street with one entrance and one exit, and feral dogs calling the worlds attention to them.
 
-At the end of that stretch of street, the fence on the left side, the side with the dog pack, was sagging. The post on the corner had been knocked loose at some point. Whether before or after was hard to know. Ahead of them, they started to see buildings built in rows, uniformly a tanish yellow color with brown roofs.
+At the end of that stretch of street, the fence on the left side, the side with the dog pack, was sagging. The post on the corner had been knocked loose at some point. Whether before or after was hard to know. Ahead of them, they started to see buildings built in rows, uniformly a tan yellow color with brown roofs.
 
 "Look like barracks," the man said in a halting, panting way. "We need to keep going." The dog pack had consolidated at that weak corner, the dogs were piling on each other. One dog managed to reach the top of the pack and rolled over the sagging top of the fence, at first with a whelp.
 
 Confused by what had happened at first, the dog realized that it was free from the gate, notice her and the man just a a little ways ahead and set after them. She turned back before it was too late, and grabbed the man and started to run. Neither of them had the full stamina and speed of fully healthy person, but both of them ran faster than they probably thought they could, propelled by fear and adrenaline.
 
-They turned down another block and started running that way. The turn they the dog off momentarily, but not long enough. They veered left again. She looked up at saw that they were running towards a tower that all of the streets seemed to lead towards.
+They turned down another block and started running that way. The turn threw the dogs off momentarily, but not long enough. They veered left again. She looked up at saw that they were running towards a tower that all of the streets seemed to lead towards.
 
 The dog hadn't tired of chasing them yet, but the man was getting winded. She pointed out the tower to him and he nodded in agreement, "Just...keep...running..." he said. But she didn't plan to leave him behind.
 
-As the tower drew closer to them, she noticed something unusual, or at least thought that she did. Up at the very top of the tower in one of the row of arched windows, she thought she saw a flashing light. But maybe it was just a trick of the light outside.
+As the tower drew closer to them, she noticed something unusual, or at least thought that she did. Up at the very top of the tower in one of the row of arched windows, she thought she saw a flashing light. But maybe it was just a trick of the light outside that her think she saw a light where there were only dark, empty window.
 
-A few more steps. She saw it again. Then again. In fact, the light was flashing in some kind of pattern, maybe a meaningful one, maybe not. In either case, clearly someone was up there signaling to them.
+A few more steps. She saw it again. Then again. In fact, the light was flashing in some kind of pattern, maybe a meaningful one, maybe not, but certainly a deliberate and intentional one. In either case, she clearly has seen someone up there signaling to them.
 
 "I see it too," the man said. "Just a little further."
 
@@ -1009,18 +1009,37 @@ Just as Alex was leaving, Max returned with a towel twisted around a few cubes o
 She shook her head, not so much for agreement, but for comprehension. At that moment, she didn't think she could fall asleep and go back into the lounge and be the silent witness to the men's  gossip and bad behavior. But, as she got more tired and could feel the trickle of melting ice running down her hand, she couldn't see an immediate way out their situation. Like she had done so many times before, she was able to coerce her fear and doubt into hardened resignation. With that inert feeling coming over her, she finally fell asleep.
 
 
-Ch #: The Visitor
+Ch 16: The Visitor
 
-[[ need transition here ]]
+Within a few days, the old man was well enough to return to work. He was put on the "landscape detail" at first which required him to be outside and a distance from the hotel. After weeks of this, winter had set in fully and the landscape detail was reduced down to a few people. He wasn't given a heavy coat or gloves or much protection from the cold.
 
-She sat up and looked over at two piles of neatly folded clothing, sitting by their packs. He seemed to understand what she was thinking, "No, not yet. I think we need to stay put a while longer. I think we can get some valuable information. I may even be able to learn more about my son."
+The mornings were particularly cruel now and exposed just how flimsy the cabins were. She awoke each morning enveloped in the exhaled clouds from her breath. She would dash down the paths to the warm refuge of the kitchen and lounge, spend her days doing what she had done the day before and the day before that.
 
+She hardly saw the old man anymore. He was gone in the mornings before she woke up and rarely returned before she crashed asleep. It wasn't until several months had passed and winter was showing the first signs of breaking the cloudy gloom it cast over the lake and everything else, that he spoke to her.
 
-"The word is that some important visitor will be here in a few days. I think you'll be able to get the inside track on who this person is. Apparently only the most important residents are able to make use of that bar where you're working." The old man had been hard at work collecting information. "Maybe when you get back we'll be able to figure out what's going on and make a plan. But for now, I'm going to keep my head down and get to work. But it ain't easy working like this after what I've been through."
+It was another morning, sunnier than usual, but still crisp and cold. As she was leaving for the morning, she thought she saw the old man out of the corner of her eye, standing back in the trees that surrounded the cabins, only to thin out into the beach. She wondered what he was doing and so she veered off course to try to find him.
 
-He left in alone in the cabin. She scrounged for a something quick to eat to tamp down the hunger she felt. Not sure what else to do with herself, she put her uniform back on and started toward the hotel. A few workers waved to her now as she walked along. Their friendly gestures surprisingly made her feel better, happy even.
+She realized that she was walking a path that cut through the trees, thin and poorly defined as it was. After only a minute of walking, she found him, waiting for her, leaning against a tree.
 
-She found her way back to the service entrance to the kitchen. The echoing clatter of dishes greeted her, along with a hot wave of air from the kitchen. She entered the kitchen to find Max, a man she had seen in passing in the kitchen, and another woman.
+"Good, I wasn't sure if you had seen me." She stared back at him blankly, not entirely sure why there were standing here on a crack of a hiking path out of view of the hotel. "These paths crisscross the whole area. There's even a clearing where some of the workers go to get away from the hotel," he explained.
+
+Of course he had gotten to know the area around the hotel better since he had spent the last few months outside working. This was a fine guided tour of the grounds, but she didn't couldn't tell where he was heading.
+
+"It's a quiet place to meet out here. Probably no one listening in," he said. As if in response to her puzzled look he replied, "I know you think I sound unhinged. But I've been hearing things and learning things. Believe me, we only got a glimpse of what goes on around here that day."
+
+He started to pace on the trail as he talked to her, as if becoming more uncomfortable, "I know I haven't been around much. It's just been easier to keep focused on work and not to worry about you much."
+
+She wasn't sure how to respond to this. "The weather's getting nicer and I figure we need to plan our escape soon." She nodded in agreement.
+
+"But I've heard that some important visitor will be here in a few days. I think you'll be able to get the inside track on who this person is. Apparently only the most important residents are able to make use of that bar where you're working."
+
+Obviously, the old man had been hard at work collecting information. "Maybe when you get back we'll be able to figure out what's going on and make a plan. But for now, I'm going to keep my head down and get to work. But it ain't easy working like this after what I've been through."
+
+He took a deep breath, "But we've got to carry on just a little longer... I have to carry on. Will you be okay?" She nodded yes. "Good," replied. "I have to go and you should get inside before they start to wonder about you."
+
+He left in alone in the woods. Not sure what else to do with herself, started back toward the hotel. A few workers waved to her now as she walked along. Somehow the secret knowledge that they would be trying to find a way to leave, made the workers' friendly gestures seemed emptier now. She almost felt bad and had an urge to run to them and shake them and say, "Wake up, come with us." But she wouldn't do that, and more likely than not, they wouldn't want her to either.
+
+She found her way back to the service entrance to the kitchen. The echoing clatter of dishes greeted her, along with a hot wave of air from the kitchen. She was hungry and figured that she would scrounge for a something quick to eat to tamp down the hunger she felt. She entered the kitchen to find Max, a man she had seen in passing in the kitchen, and another woman.
 
 Max looked her over, "Well you look a little better than you did yesterday evening. Don't worry you'll get used to it. Hungry?" She nodded. "Carl usually fixes the kitchen staff something to eat in the morning before our shifts start." The other woman dragged a stool over to the large stainless steel table in the middle of the room where they were sitting.
 
@@ -1114,7 +1133,7 @@ It was many hours later before Max finally released her from the lounge. At this
 
 When she opened the door and stepped inside, she could tell, even in the dark, that something wasn't right. Something was missing. She scanned the room and realized that the old man wasn't there. Immediately, her mind rushed to the worse scenarios. He was injured. He was dead.
 
-A flurry of possible actions swarmed her mind. She had to find him. She had to do something. All she could think of immediately was to leave the cabin, to move. The door's creaking seemed more ominous as she pushed her way through. Standing on the roughly build stairs, she looked around. There were other cabins around them, the quarters for the rest of the workers. Maybe she could find Rosrio's cabin, or maybe Alex's.
+A flurry of possible actions swarmed her mind. She had to find him. She had to do something. All she could think of immediately was to leave the cabin, to move. The door's creaking seemed more ominous as she pushed her way through. Standing on the roughly build stairs, she looked around. There were other cabins around them, the quarters for the rest of the workers. Maybe she could find Rosario's cabin, or maybe Alex's.
 
 She approached the nearest cabin and gave a gentle knock on the door, not wanting to wake the entire work crew up, no matter how upset she felt. She knocked one more, this time with a bit more force so the door hopped in its frame.
 
@@ -1217,6 +1236,26 @@ Casey shook his head, "They're trying to light up everything in this area, for a
 
 The old man seemed resolved to ignore this advice, "I can't do that. My son is out there and I need to find him. I promised him I would find him. There has to be a way."
 
-But your friend Max," he said pointing at her, "might be able to set something up."
+But your friend Max," he said pointing at her, "might be the person to get you out of here."
 
-[[ back up and have a scene where the old man is caught snooping around, or maybe they've strayed too far and get warned against leaving. then in the scene above they are more desperate to leave. The guard will them about the boat house, but only a few people have the key including Max ]]
+# Ch 17 Teatro del Lago #
+
+Ever since that night, she had turned over the plan in her mind again and again. She didn't know if it would work, but it seemed like the only the opportunity they would have to make a clean break from the hotel.
+
+Casey had explained that the annual Teatro del Lago was coming up. It was some kind of masked ball and performance that drew out all of the hotel residence. The festivities continued for several days, "like a Roman party," Casey had explained. Normally Lord Grainger was invited to celebrate the opening of trade routes in the early spring, but this year he was called away and had declined the invitation.
+
+"But the Teatro, that will be your opportunity," Casey explained.
+
+The night after Casey left with Lord Grainger's caravan, the old man returned earlier than usual to the cabin. He seemed to have something bundled under his arms, but he held it tightly and closely. After gently closing the door, he looked around, kneeled down beside her, and unwrapped the package, revealing a small, blunt nose pistol inside.
+
+The old man held it up, inspected it, opened the chamber and looked inside. He seemed pleased with it, so she assumed it was in good working order. "This will be the key to us getting out of here," he said. "Help me find a place to hide it." They searched around the cabin until the old man found a gap in the way the door had been roughly framed out in two by fours of varying lengths. With the way they had been slapdahsed together, he would slip the gun between the door frame and the outer plywod wall. If you knew and were looking carefully, you could just make out the tip of the pistol's grip, but its dark black and brown colors blended in with the wood and shadows in the cabin.
+
+With the gun secured, they let it sit there until it was time to put the plan into action. It didn't mean she wasn't always aware of the gun, always watching it instead of trying to fall asleep. It was pointless the train so much attention on it, she realized. The gun unsettled her like it might take on a life of its own, or even be found and then be a secret that someone held in their possession, holding it, waiting to use it, not the gun, but the secret, which would be just as deadly of a weapon when wielded by the right person.
+
+At last the night of the Teatro was announced, out on the verandah with all of the residents assembled after the dinner hour. She hadn't seen everyone who lived in the motel together at once like this. Scanning the crowd the faces were almost indistinct from one another, even though she registered some male and female faces, some subtle differences in race and background. But taken together the resident of Paz-a-Lago seemed remarkably like one another.
+
+The news that the Teatro would be held in two days animated the crowd. Groups broke into smaller groups to discuss their plans. These people, who lived their lives with a singular devotion to their pleasure and relaxation, seemed to find the thought of enjoying even more of it to be thrilling.
+
+For her and the other workers, the Teatro meant a wave of frenetic energy crashed over all of them. Every worker seemed to hold more tension in their bodies, every movement was more exact than even the day before. Faces that normally would have broken in to a fleeting smile or nod of recognition were hardened and focused, as if not wanting to forget a single detail.
+
+She was called on to help with food preparation and laundry. So much laundry. The hotel's large commercial washing machines usually chugged along at a leisurely pace, able to handle the light work given it. But suddenly it seemed that everything needed to be laundered and pressed crisp from napkins to tablecloths to intricately sewn and pleated dresses and shirts. In fact, some of the women who tended to the rooms and acted like maids from long ago would have to some of the women who lived in the hotel, were given temporary roles as costumers and seamstresses.
