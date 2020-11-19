@@ -1,4 +1,4 @@
----
+supplicant---
 layout: base
 ---
 
@@ -1259,3 +1259,49 @@ The news that the Teatro would be held in two days animated the crowd. Groups br
 For her and the other workers, the Teatro meant a wave of frenetic energy crashed over all of them. Every worker seemed to hold more tension in their bodies, every movement was more exact than even the day before. Faces that normally would have broken in to a fleeting smile or nod of recognition were hardened and focused, as if not wanting to forget a single detail.
 
 She was called on to help with food preparation and laundry. So much laundry. The hotel's large commercial washing machines usually chugged along at a leisurely pace, able to handle the light work given it. But suddenly it seemed that everything needed to be laundered and pressed crisp from napkins to tablecloths to intricately sewn and pleated dresses and shirts. In fact, some of the women who tended to the rooms and acted like maids from long ago would have to some of the women who lived in the hotel, were given temporary roles as costumers and seamstresses.
+
+Outside the hotel changed too. Workers transplanted trees and shrubbery in large pots. Furniture was arranged into sitting areas with partitions built around them. And running through everything were lights.
+
+The day before, she was surprised to see Max waiting for her outside, even more of a surprise was to see the old man standing next to her. "We've got outside work to do today," Max explained. "Follow me" The old man avoided looking at her directly. She followed his lead and kept a distance from him and tried to keep her focus away from him as well.
+
+They followed Max along the walk that ran parallel to the beach until the reached the dock and the small boat house. The boat house had been locked up since they had arrived, so she had never seen inside it. Now the doors were opened wide, revealing a few old kayaks, stand up paddle boards, and a small boat with an outboard motor. Even without looking, she could tell that the old man had seen the motor boat and was very aware of the potential that it represented for escape.
+
+she had to push ideas about that away. They had to set up the exterior bar. The old man was there to haul tables stored in the boat house out and set them up . Max directed her to begin moving large rolling carts of glassware in plastic racks, relics of the hotel's former life hosting large events. They used bins to create temporary sinks. They even relocated the ice maker to the boat house.
+
+When the day of the Teatreo arrived, she was exhausted, but had to prepare for the long day ahead. Max had warned her that the festivities could last into the next day sometimes.
+
+She spent most of that day of the Teatro setting up tables and linens, arranging silverware, running serving dishes of food and preparing them for the feast to follow. By the evening, she was exhausted, but helplessly transported by the effects of their work. The hotel, which already had an unreal quality for her, seemed like a shining miracle in the midst of so much darkness and despair.
+
+The miracle wasn't hers to hold and contemplate for long. There was work to do to sustain the miracle, to prop up the illusions of comfort and splendor, of escape. The residents began to fill the scene as well. Once they were there, placed in their positions, there were orders to fill.
+
+For the first few hours, she was so busy attending the residents, that she didn't notice that the boat was missing from the boat house. She only realized that when Max instructed her to start refilling ice from the relocated ice machine. She stood at the machine's gaping, open plastic hatch, letting the cool vapors from the ice swarm over her. But when she turned she almost dropped the large plastic bucket she had been filling.
+
+The boat was gone and that meant that the plan might not work. She had never really thought of the plan as being anything more than a plan, something that existed as an idea only. But seeing the boat gone made her anxious that this thing that only existed as words and vague images in her mind might not work.
+
+For the moment, though, she had to stay focused on her tasks at hand, to remind herself of where she was and what she was doing. Getting distracted now would only draw unwelcome attention to herself. It was clear now that the Teatro had been underway for a while, that the residents were becoming more and more oblivious to her and the other workers. That was a fine thing and probably the way she preferred to keep it.
+
+Not long after discovering that the boat was missing, she could hear a faint droning sound in the distance. The sound grew louder and louder. Once it was loud enough to cut through the sounds of the crowd, people began to notice the sound. A few people pointed to the water and, as if acting with one mind, the whole audience moved closer to the beach and the water to see what was happening.
+
+She stood at the fringe of the large group and could now see what was making the sound. The boat was cutting through the waves, bounded towards them with an ever increasing buzz from the motor.
+
+From where she stood, she couldn't make out exactly who was in the boat, but she could definitely tell that there were two, maybe three, people riding to the shore. But one person in particular caught her attention. There was a person standing in the boat. The standing person seemed to be a woman, but she couldn't place who exactly it was. Since she worked in the lounge, her contact with the female residents had been very limited.
+
+Regardless, she watched the figure's long hair billow in the rushing air around the boat. The figure kept her arms up and outstretched, letting long panels of flowing fabric ripple and whip behind her. The figure was wearing some kind of costume. It reminded her of illustrations from old mythology books. The woman on the boat seemed to be riding from or into mythology.
+
+There was a brief awkward moment as a hidden third passenger on the boat jumped into the disruptive spray caused by the lake's current. This third passenger hauled in the boat further on land, and then stood at the boat's edge, waiting for the driver, who also dropped down and stood by the boat. Together, they helped lower down the figure by her arms, allowing her to ascend from the boat like some of goddess come to visit the mortals.
+
+The crowd parted and then fell in line as she walked through the middle of them and then on towards the temporary stage that had been built on the hotel's verandah. Once the woman reached the stage, two figure, men this time, but dressed in tight fitting clothes that seemed to have branches attached to them, and holding large branches as well, stood beside her. They assumed their positions like trees beside her.
+
+By now, the audience shifted back to the stage area to watch the show. Since no one was demanding drinks from her, she was able to hang back in the dark corners of the crowd, unseen, but watching. As if on cue, four people appeared on stage. They were dressed very differently from one another, suggesting that they represented something, but she couldn't quite tell what.
+
+She knew from their gesture and slow walk that these people were supposed to be survivors. As they approached the women in costume, they fell to their knees before her, holding their hands together tightly as they appealed to this goddess figure for...food, protection, peace. It was still a little unclear to her.
+
+One figure, however, did not knell and supplicate himself. She could tell from the way he held himself that this was [name]. Instead of groveling before the goddess, he remained aloof and seemingly unconcerned by her presence. For her part, the goddess accepting this as a matter of course. Instead, she attended to the other three first.
+
+The first person, she lifted to standing by a fingure under the chin, the person was wrapped in a magenta shawl and instructed to stand by one of the trees. This person began to inspect the trees and act as if he was caring for the tree, pruning it, watering it. The person playing this role seemed completely absorbed by these imaginary tasks.
+
+The second person she instructed to stand had a different fate. She gave this person a woven item that seemed like a cross between a branch and a fan. She guided this person to the other tree. But instead and tending to this tree, this second person idled there, fanning himself with the fan. He even tried to fan the goddess, which she waved away, causing a ripple of laughter in an otherwise enraptured audience.
+
+Finally she approached the third person. This person seemed to be in the worse shape of the four, dressed in tattered rags. The person playing this part started to shake in an exagerated way, holding his stomach, launching into a chorus of wordless laments that invovled pitching and holding his arms in different strange shapes.
+
+The goddess inspected him and must have deemed him unacceptable. 
