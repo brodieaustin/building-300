@@ -650,6 +650,8 @@ The horses were harnessed to a simple, flat wooden platform that had been mounte
 
 The horses began to sense their approach and grew nervous. They started pacing, seemingly fighting their instinct. The man and the woman both stopped, carefully to not spook the horses any further. As they stood there, a man appeared from one of the train station archways. He was wearing a maroon blazer that was at least one size too small, several dirty shirts underneath, and dark, denim like pants.
 
+[this section needs to be updated to reflect changes to story later on. Needs to be clear that the driver is waiting for someone specific]
+
 He had the look of someone who was supposed to be to dressed up, to convey an that this person was interacting with fine people, someone who had been dressed up by someone else. But the reality, the execution, missed the mark. "You folks have passage?" he asked as he grabbed at the horses harnsess and settled them down.
 
 "Passage..." the old man started to ask, but seemed to feel that there was more at stake in what the man asked. "Yes, of course."
@@ -1302,6 +1304,42 @@ The first person, she lifted to standing by a fingure under the chin, the person
 
 The second person she instructed to stand had a different fate. She gave this person a woven item that seemed like a cross between a branch and a fan. She guided this person to the other tree. But instead and tending to this tree, this second person idled there, fanning himself with the fan. He even tried to fan the goddess, which she waved away, causing a ripple of laughter in an otherwise enraptured audience.
 
-Finally she approached the third person. This person seemed to be in the worse shape of the four, dressed in tattered rags. The person playing this part started to shake in an exagerated way, holding his stomach, launching into a chorus of wordless laments that invovled pitching and holding his arms in different strange shapes.
+Finally she approached the third person. This person seemed to be in the worse shape of the four, dressed in tattered rags. The person playing this part started to shake in an exaggerated way, holding his stomach, launching into a chorus of wordless laments, pitching and holding his arms in different strange shapes.
 
-The goddess inspected him and must have deemed him unacceptable. 
+The goddess inspected him and must have deemed him unacceptable. Three new figures, who she had not noticed before, appeared on the stage. These figures wore long flowing black cloaks. They had wooden masks that had been roughly carved and painted white.
+
+The figures in black swirled around the third person, whose lament became louder, then more violent. Arms and legs shot out in extreme angles from the swirl of fabrics. Cries of man were smothered by a deep whooshing sound the figures were making, something between a sucking noise and a ghostly hum.
+
+The limbs disappeared in the swirl. Slowly, progressively, the figures in black and edged towards the back of the stage. When the crisply snapped their cloaks into place, the third figure had disappeared, vanished from the stage.
+
+Whether it was an exile or an execution, the two other people by the trees did not seem to take notice of what was happening on stage. The amateur actors were very convincing in their oblivious avoidance of the staged cries of pain and agony.
+
+The people by the tress become more attentive when the goddess called the fourth figure to the front. The fourth figure wore a simple costume, but it was obviously [name]. Whereas the other actors could have been interchangeable, it was clear that this role was reserved for one person, for [name]. As he approached the goddess, the entire script changed and instead of kneeling to her in supplication or reverence, the goddess kneeled before him. She held out in her hands something shiny,  something that looked with a dagger or knife.
+
+[Name] reached down for it. Held it up for the crowd the see and then proceed to pretend to kill the goddess with the knife. She couldn't compare this year's goddess to other performances, but this year's did seem to draw out the death scene. She ended up cradled in [name's] arms and then expired. He lay the actress' limp body to the ground and stood above her and turned to the crowd in triumph. The crowd cheered and without delay the celebration began again.
+
+She kept watching for the old man, but only ever caught a glimpse of him. And each time she saw him, it wasn't long enough to establish with any meaningful looks if the plan was going to proceed as they had discussed. It seemed like many of the pieces were ready. But for some reason, the old man hesitated and didn't commit. So she had to wait and be ready for the signal that the plan was in motion.
+
+In the meantime, she had to focus on her job. Just as Max had said, the celebration did last late into the night. At some point, though, she couldn't remember when, the revelry shifted inside, meaning that most of the workers shifted inside as well. The party didn't slow down, but continued on in the halls and rooms of the hotel. She could not remember seeing so many revelers all at once.
+
+Even though she could barely keep her eyes open, there was still work to do. Her feet were starting to ache and she was ready to sleep, even if for a few moments only. Max called out to her above the roar of the revelers to get more ice. Since they had not had time to move the machine, she had to go out to the boat house to get it.
+
+Nighttime was just starting to fade into day. The sun was slowly starting to peel away the pieces of night sky, removing stars one by one. She looked out at the water. Its unlit expanse seemed to stretch far and wide and disappear into nothingness. She could image getting swallowed up in that darkness and never appearing again.
+
+Without meaning to, she almost screamed out when someone came up behind her and shuffled her into the boathouse. "Don't scream yet, it's not time," the old man said. She realized that her jumpiness, maybe caused by fatigue, would have set things in motion at the wrong time.
+
+She took a breath and calmed herself. He looked at her and said, "I've been waiting all night for a chance. This is it. We have to take it." She understood and readied herself to execute the plan. He fished out the gun and held it up. He pointed it at the boathouse's opposite wall and fired. The gunshot did startle her, even though she knew it was coming. The sound was deafening in the confined space there were in. Fortunately, the bullet sailed right through the boathouse's siding.
+
+"You watch the door. I'm going to get our stuff," the man said. He disappeared briefly and then was standing next to her with their packs and clothesin his arms. They stood very still and very quiet, waiting for the rush of feet coming to see what the sound was. Listening as intently as she was, she wasn't sure if she was imagining the sound of someone wincing and falling the the ground or not.
+
+She poked her head outside the door and in fact there was someone lying on the ground. She took a few steps forward, realized who it was, and rushed out of the boathouse. "Where are you going?" the old man hissed, not aware of what had happened.
+
+She rushed to the figure's side and confirmed her worse fear. Max lay there, there, shot in the neck, bleeding profusely. She couldn't speak as she looked up at her, but her eyes were full of terror.
+
+She realized, standing over Max, that the older woman, who had treated her so well, in spite of their position in the hotel, was likely going to die. In the old world, an ambulance would have rolled up within minutes and whisked her away to a hospital emergency room. But there were no ambulance and no hospitals.
+
+Just then, the old man whisked up beside her. When Max saw the gun, she tried to grab at her and pull her away from the old man, but she just bled more as a result and winced in pain. "What are you doing," he hissed.
+
+He looked down at Max and the revolver, "Fools luck, I guess. She wasn't supposed to here when I shot the gun. Who could have known. But we have to go...now." He tried to raise her up by her arms, but she batted his hands away and stayed by Max's side.
+
+She felt a profound sense of responsibility for getting Max shot. She couldn't believe that her escape attempt would cost Max her life. And yet here she was, acting out this very scenario. Nothing in the plan said this would happen. But it did happen and now she didn't know what to do.
