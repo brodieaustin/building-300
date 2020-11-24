@@ -1,4 +1,4 @@
-supplicant---
+---
 layout: base
 ---
 
@@ -1250,7 +1250,7 @@ Casey had explained that the annual Teatro del Lago was coming up. It was some k
 
 The night after Casey left with Lord Grainger's caravan, the old man returned earlier than usual to the cabin. He seemed to have something bundled under his arms, but he held it tightly and closely. After gently closing the door, he looked around, kneeled down beside her, and unwrapped the package, revealing a small, blunt nose pistol inside.
 
-The old man held it up, inspected it, opened the chamber and looked inside. He seemed pleased with it, so she assumed it was in good working order. "This will be the key to us getting out of here," he said. "Help me find a place to hide it." They searched around the cabin until the old man found a gap in the way the door had been roughly framed out in two by fours of varying lengths. With the way they had been slapdahsed together, he would slip the gun between the door frame and the outer plywod wall. If you knew and were looking carefully, you could just make out the tip of the pistol's grip, but its dark black and brown colors blended in with the wood and shadows in the cabin.
+The old man held it up, inspected it, opened the chamber and looked inside. He seemed pleased with it, so she assumed it was in good working order. "This will be the key to us getting out of here," he said. "Help me find a place to hide it." They searched around the cabin until the old man found a gap in the way the door had been roughly framed out in two by fours of varying lengths. With the way they had been slapdahsed together, he would slip the gun between the door frame and the outer plywood wall. If you knew and were looking carefully, you could just make out the tip of the pistol's grip, but its dark black and brown colors blended in with the wood and shadows in the cabin.
 
 With the gun secured, they let it sit there until it was time to put the plan into action. It didn't mean she wasn't always aware of the gun, always watching it instead of trying to fall asleep. It was pointless the train so much attention on it, she realized. The gun unsettled her like it might take on a life of its own, or even be found and then be a secret that someone held in their possession, holding it, waiting to use it, not the gun, but the secret, which would be just as deadly of a weapon when wielded by the right person.
 
@@ -1320,26 +1320,90 @@ The people by the tress become more attentive when the goddess called the fourth
 
 She kept watching for the old man, but only ever caught a glimpse of him. And each time she saw him, it wasn't long enough to establish with any meaningful looks if the plan was going to proceed as they had discussed. It seemed like many of the pieces were ready. But for some reason, the old man hesitated and didn't commit. So she had to wait and be ready for the signal that the plan was in motion.
 
-In the meantime, she had to focus on her job. Just as Max had said, the celebration did last late into the night. At some point, though, she couldn't remember when, the revelry shifted inside, meaning that most of the workers shifted inside as well. The party didn't slow down, but continued on in the halls and rooms of the hotel. She could not remember seeing so many revelers all at once.
+In the meantime, she had to focus on her job. Just as Max had said, the celebration did last late into the night. At some point, though, she couldn't remember precisely when, the revelry shifted inside, meaning that most of the workers shifted inside as well. The party didn't slow down, but continued on in the halls and rooms of the hotel. She could not remember seeing so many revelers all at once.
 
-Even though she could barely keep her eyes open, there was still work to do. Her feet were starting to ache and she was ready to sleep, even if for a few moments only. Max called out to her above the roar of the revelers to get more ice. Since they had not had time to move the machine, she had to go out to the boat house to get it.
+Even though she could barely keep her eyes open, there was still work to do. Her feet were starting to ache and she was ready to sleep, even if for a few moments only. In this fatigues state, it was almost a welcome relieve when [name] called her over to the largest table in the lounge. He was holding court with the hotel's most important residents.
 
-Nighttime was just starting to fade into day. The sun was slowly starting to peel away the pieces of night sky, removing stars one by one. She looked out at the water. Its unlit expanse seemed to stretch far and wide and disappear into nothingness. She could image getting swallowed up in that darkness and never appearing again.
+He told her to sit with them and and she did without thinking. He passed her a drink and said, "It's not too late to enjoy yourself. Drink with us, enjoy the last hours of the day with us." She immediately felt uncomfortable and didn't want to play along, but she could hardly withstand the unbearable weight of the pressure to indulge [name]. He had, after all, symbolically slain the goddess and claimed his right to rule over the hotel and its dominion.
 
-Without meaning to, she almost screamed out when someone came up behind her and shuffled her into the boathouse. "Don't scream yet, it's not time," the old man said. She realized that her jumpiness, maybe caused by fatigue, would have set things in motion at the wrong time.
+It didn't take long, however, before Max interceded, "Now [name], you know better than anyone that the help and residents don't mix." There was a twitter of snickers and laughs around the table. She had been at the hotel long enough to know that this was a lie, but everyone kept up the appearance of there being separation between the two.
 
-She took a breath and calmed herself. He looked at her and said, "I've been waiting all night for a chance. This is it. We have to take it." She understood and readied herself to execute the plan. He fished out the gun and held it up. He pointed it at the boathouse's opposite wall and fired. The gunshot did startle her, even though she knew it was coming. The sound was deafening in the confined space there were in. Fortunately, the bullet sailed right through the boathouse's siding.
+"Max, don't ruin the fun. Teatro only comes once a year. A little enjoyment and pleasure for our girl here won't harm anyone, especially her."
 
-"You watch the door. I'm going to get our stuff," the man said. He disappeared briefly and then was standing next to her with their packs and clothesin his arms. They stood very still and very quiet, waiting for the rush of feet coming to see what the sound was. Listening as intently as she was, she wasn't sure if she was imagining the sound of someone wincing and falling the the ground or not.
+"I'm sorry, but if you want the party to keep going, I need her help. This isn't a one woman operation. Besides, we're low on ice and I need her to fetch it."
 
-She poked her head outside the door and in fact there was someone lying on the ground. She took a few steps forward, realized who it was, and rushed out of the boathouse. "Where are you going?" the old man hissed, not aware of what had happened.
+In his drunken state, [name] was easily distracted by laughter from another group of revelers. He waved Max away with a "pfft" and joined the other group.
 
-She rushed to the figure's side and confirmed her worse fear. Max lay there, there, shot in the neck, bleeding profusely. She couldn't speak as she looked up at her, but her eyes were full of terror.
 
-She realized, standing over Max, that the older woman, who had treated her so well, in spite of their position in the hotel, was likely going to die. In the old world, an ambulance would have rolled up within minutes and whisked her away to a hospital emergency room. But there were no ambulance and no hospitals.
+Max pulled her close so she could hear her above the roar of the revelers to get more ice. "I really do need more ice. Are you okay to get it?" She nodded in reply and escaped through the lounge's back door. Since they had not had time to move the machine, she had to go out to the boat house to get it.
+
+Nighttime was just starting to fade into day. The sun was slowly starting to peel away the pieces of night sky, removing stars one by one. She looked out at the water. Its unlit expanse seemed to stretch far and wide and disappear into nothingness. She could image getting swallowed up in that darkness and never appearing again. Up ahead the only light came from a single light above the boathouse's door.
+
+Without meaning to, she almost screamed out when someone came up behind her and shuffled her into the boathouse. "Careful. It's just me. We're so close, we can't let them catch on to what we're doing." the old man said. She realized that her jumpiness, maybe caused by fatigue, would have set things in motion at the wrong time.
+
+She took a breath and calmed herself. He looked at her and said, "I've been waiting all night for a chance. This is it. We have to take it." She understood and readied herself to execute the plan. He fished out the gun from his backpack, unwrapped it, and handed it to her. "Go stand watch at the door while I get everything ready. Stay in the shadows. If you hear and say anything, you hurry to the boat. Only use the gun if you have to."
+
+She took up her post and looked out the door. The pool of light from above the door made it hard to see out. Finally the old man gave a whistle and she went to join him in the boat. As she walked across the dock, a voice called out, "Hey stop!" Without thinking, she turned with the gun up, pointed it at the darkness and fired. The gunshot startled her, even though she knew it was coming. The sound was deafening and rang out in the quiet night.
+
+She looked down at the old man in the boat. They both were very still and very quiet, waiting for the rush of feet coming to see what the sound was. Listening as intently as she was, she wasn't sure if she was imagining the sound of someone wincing and falling the the ground or not.
+
+She took a few steps forward, and then a few more. In fact there was someone lying on the ground. She couldn't tell who it was without getting even closer. Within a few more steps, however, she realized who it was, and rushed towards the figure on the ground. "Where are you going?" the old man hissed.
+
+She rushed to the figure's side and confirmed her worse fear. Max lay there, on the ground, shot in the neck, bleeding profusely. She couldn't speak as she looked up at her, but her eyes were full of terror. She realized, standing over Max, that the older woman, who had treated her so well, in spite of their position in the hotel, was likely going to die. In the old world, an ambulance would have rolled up within minutes and whisked her away to a hospital emergency room. But there were no ambulance and no hospitals.
 
 Just then, the old man whisked up beside her. When Max saw the gun, she tried to grab at her and pull her away from the old man, but she just bled more as a result and winced in pain. "What are you doing," he hissed.
 
-He looked down at Max and the revolver, "Fools luck, I guess. She wasn't supposed to here when I shot the gun. Who could have known. But we have to go...now." He tried to raise her up by her arms, but she batted his hands away and stayed by Max's side.
+He looked down at Max and the revolver, "You couldn't have known. It's terrible, but it's...it's just what happened. But we have to go...now." He tried to raise her up by her arms, but she batted his hands away and stayed by Max's side.
 
 She felt a profound sense of responsibility for getting Max shot. She couldn't believe that her escape attempt would cost Max her life. And yet here she was, acting out this very scenario. Nothing in the plan said this would happen. But it did happen and now she didn't know what to do.
+
+The old man tried to pull her away again, "We need to leave now. I have everything in the boat." They could hear shouts coming from the hotel. She looked up and could make out Xavier and his guards making their way through the glass door, across the verandah, and down the paths towards them.
+
+She repelled the old man's attempts to pull her away one final time. She leaned down close to Max and whispered in her ear, "I'm sorry." The words barely eeked their way from her lips. She wasn't entirely sure if she said them out loud, or just imagined them. But as she sat up, Max's let a weak, quivering hand reach out for her, grasping for her hand. She held Max's hand in hers until she couldn't any longer.
+
+Finally she knew she couldn't resist any longer and turned to dock and the boat. She climbed down into the small boat and once she was settled the old man passed the gun to her. "We've got one shot left," she said. "Only use it if you hae to." He truend his attention to launching the boat, pushing them away with a paddle that was stowed away on the inside. As they drifted backwards, the guards and Xavier drew closer and closer.
+
+Xavier stopped at Max's nearly lifeless form. The old man desperately pulled the starter cord. Each time the engine gave a wheezing zip noise, but didn't jump to life. They were only a few feet from the dock now, the guards could jump in and grab them if they wanted to. She stood up suddenly, causing the boat to rock side to side, but she got her footing and pointed the gun at them.
+
+The guards stood down, even as Xavier gained on them, screaming at them to stop her and the old man. In the dark, they probably couldn't tell that her hand shook as she kept the gun trained on them. Finally the engine sputtered to life. They lurched forward and then turned sharply towards the open water.
+
+She looked back as more people gathered on the shore and they drifted into the lake's flat, dark distance, leaving the hotel behind them.
+
+# Ch 18: Company Town #
+
+The old man piloted the small boat further out into the lake's expanse of open waters. The lights from the hotel were nothing more than a glow above the trees in the waning darkness. She felt numb as the boat chopped through the waves, bouncing up and down as they picked up more speed.
+
+Without realizing it, she must have fallen asleep. The boat lurched suddenly to the side, waking her up. She sat up and looked back. The old man was nodding off and sending the boat speeding off away from the shore line.
+
+She turned back to him. A light touch on his shoulder propelled him awake, "Sorry," he said, rubbing his eyes with his free hand. "Thought I wouldn't doze like that. We better find a place to lay low." He pointed up ahead, "We seem to be getting closer."
+
+Further down the coast line she would see smoke billowing from the smokestacks that stretched up into the sky. From this stance, those clouds of smoke were nothing more than big shapes tacked up in the sky. They seemed to hang there above the power plant, and whatever else was below, like a permanent fixture in the sky.
+
+Then it was her turn to notice something. Over his shoulder, further out in the lake, she could make out grey, fuzzy outline of a large ship. It reminded her of the ship she has seen out on the water so many months ago living in Building 300. Here was another lumbering loud shape. She now knew from the old man that the ship was hauling people from whatever camps and settlements remained to the plants. Hauling desperate people who had been enticed by the same lures as the old man's son.
+
+For a fleeting moment, she found herself thinking about her days living in Building 300, dwelling in the past as much as the space in her imagination. Lingering there in those memories, in any memory, was such a foreign thing to her, that for those brief moments, she almost felt like she had lost herself. The sighting of the boat and the dangers it could mean for them hung out there in the expanse of water between them and the ship, waiting for her to pickup and react to it. But in her reverie, she almost wanted to keep it out there, let it dissipate like those lumbering clouds from the power plant that seemed so solid, but grew whispy at the edges.
+
+The old man grabbed on the fear for her. He looked back over his shoulder and said, "A transporter. We better get out of sight. The impressers move fast. Before you know it, they have us hauled up in the cargo holds, moving us like supplies to power the plant."
+
+He piloted the small boat even closer to shore before saying, "Look at that up ahead." She scanned the shoreline and just start to make out the outline of buildings set back from the water. There seemed to be an increasing number of things floating in the water, but she wasn't sure what had him so animated.
+
+"There, I thought so. I must be an old harbor up there. See those lines, those are masts from old sailboats. And there are bouys floating in the water that used mark the entrance. Hold on, I'm going to pick up speed." He opened the throttle and the boat pitched back as it bound through the water and waves.
+
+At the harbor's entrance, she realized that the ships they had seen were remnants of sunken or skuttled ships that had been abandoned. The harbor was littered with these ghostly remains of what had once been pleasure boats for people to enjoy their leisure out on the open water. Now, they were dodging around them, fearful of being captured and bonded to servitude.
+
+At the edges of the harbor, old empty buildings stared out over the water, disinterested in the question of what would become of them. Just ahead, they could make out another inlet that, once they entered it, became some kind of canal or waterway that seemed to continue on without stopping for quite some distance.
+
+Hidden by the banks of the canal, the old man slowed down to an idle speed and let them drift quietly along the canal's current. As they drifted along lazily, they could hear the ship out on the water even better now.
+
+The ship let out a low, loud, sad sounding horn. The sound made her jump, did it mean they had been discovered. The old man tried to assure her, "I wouldn't worry about that. They can't see us from here. Besides there's no way they would come this way, the ships too big."
+
+As if not entirely convinced by his own logic, he sped up more. The calm canal waters parted into undulating waves on either side of the boat. A little further into the canal and they both realized that he had been wrong. The ship was entering the harbor.
+
+She didn't know how they were piloting such a large ship through the debris. But the ship seemed to be maintaing it's course, althogh slower than before, without seeming to be aware of any obstacles in its bath.
+
+"We need to find a place to hide, now," the old man said. Just up ahead, there was an empty space in dock built on to an old restaurant. A few broken tables and chairs still littered the elaborate deck that had once hosted people on the canal water. He pointed out the empty space, saying, "that might be our best option. Get ready to grab your stuff and run to the restaurant. We'll hide in there. Hopefully they'll pass by and we can resume our trip."
+
+He banged the boat into the empty place to dock and killed the motor. She got out first. He handed her a rope and did a twirling motion with his index finger to indicate that she needed to run the rope around the cleat to hold the boat.
+
+
+With the boat nominally secured, they navigated the deck's many steps and platforms. She tried the restaurant's back door but it was locked. "Over here," he whispered. On the side, one of the restaurant's basement windows had been kicked in. He kneeled down and tried to look. "It's dark. Can't see much. It'll have to do."
