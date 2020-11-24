@@ -48,7 +48,6 @@
       list-style: none;
       margin: 0;
       padding: 0;
-      columns: 2;
     }
 
     .toc li{
@@ -62,8 +61,8 @@
     <a href="" class="novel-title">Building 300</a>
   </header>
   <main>
-    <ul class="toc"></ul>
     <article class="novel">
+      <ul class="toc"></ul>
       {{ content }}
     </article>
   </main>
@@ -73,11 +72,12 @@
       var headings = document.querySelectorAll('h1');
 
       for (i = 0; i < headings.length; i++){
-        var heading = headings[i].id;
+        var heading = headings[i];
         var item_link = document.createElement('a');
         var item = document.createElement('li');
 
-        item_link.href = heading;
+        item_link.href = heading.id;
+        item_link.innerText = heading.innerText;
         item.appendChild(item_link);
         toc.appendChild(item);
       }
