@@ -46,8 +46,9 @@
     }
     .toc{
       list-style: none;
-      margin: 0;
-      padding: 0;
+      margin: 0 0 2rem 0;
+      padding: 0 0 2rem 0;
+      border-bottom: 1px solid #ccc;
     }
 
     .toc li{
@@ -62,6 +63,7 @@
   </header>
   <main>
     <article class="novel">
+      <h2>Contents</h2>
       <ul class="toc"></ul>
       {{ content }}
     </article>
@@ -72,7 +74,7 @@
       var headings = document.querySelectorAll('h1');
 
       for (i = 0; i < headings.length; i++){
-        var heading = headings[i];
+        var heading = '#' + headings[i];
         var item_link = document.createElement('a');
         var item = document.createElement('li');
 
