@@ -74,11 +74,11 @@
       var headings = document.querySelectorAll('h1');
 
       for (i = 0; i < headings.length; i++){
-        var heading = '#' + headings[i];
+        var heading = headings[i];
         var item_link = document.createElement('a');
         var item = document.createElement('li');
 
-        item_link.href = heading.id;
+        item_link.href = '#' + heading.id;
         item_link.innerText = heading.innerText;
         item.appendChild(item_link);
         toc.appendChild(item);
