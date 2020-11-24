@@ -730,7 +730,7 @@ She held up a stack of neatly folded sheets on the mattresses. She picked them u
 
 With the mattresses arranged, they unfurled the marvelous sheets over the mattresses and prepared to sleep. She rolled on her side towards the wall, pretending to fall asleep, but really just lay there staring at the plywood floor's wood grain, tracing out the shapes of faces, of evil creatures sneering in the swirl of lines.
 
-# Ch 12: On the Beach #
+# Chapter 12: On the Beach #
 
 The next morning, a chorus of birds woke her up just a light was starting to break into the day. She rose up from the mattress, scattering the smoke from her breath as she did. She grabbed her coat and shoes carefully opened the spring loaded door to peek outside.
 
@@ -814,7 +814,7 @@ The old man was waiting for her in the hallway, already cleaned up. She wondered
 
 Xavier reappeared, assessed them and said, "It will do. Come with me."
 
-# Chapter 14: The Sandpiper #
+# Chapter 13: The Sandpiper #
 
 They passed through another door and suddenly were standing in the hotel's lobby. She marveled to be surrounded by such clean, orderly surfaces. Everything from carpet, tiled floors, paint on the walls gleaming in the morning light. She marveled most at the light fixtures--glass cones and spheres suspended from the walls and ceilings. None of theme were broken, even chipped, and they were all, all of them, lit up, even in the full light of the day.
 
@@ -888,7 +888,7 @@ She turned to leave through the lounge's front door, but Max gently held her bac
 
 She leaned into the crashbar and entered into the chill of the early evening air. The early evening light that accompanied the early evening air still made her eyes flinch. She had been inside the Sandpiper's dim four walls so so many hours now. Even though the air and light was startling, and she hugged herself in the chill, her body suddenly felt looser than it had. She felt the weight of working lift from her. Again, she could hardly believe that she felt this way out in the open, exposed to the world. But here she was, wearing a uniform, walking back to the barebones cabin, seemingly part of some oasis of the old world that someone willed into existence.
 
-# Ch 15: Imposters #
+# Ch 14: Imposters #
 
 She woke in the morning in a daze, hardly aware that she had even fallen asleep the night before. The cabin seemed colder than before, even under the threadbare blanket that had been placed over her. The old man was already up and getting dressed. "Good you're finally awake. I'm expected to report for work soon. When are you due back?" She shrugged in response.
 
@@ -1240,7 +1240,7 @@ The old man seemed resolved to ignore this advice, "I can't do that. My son is o
 
 But your friend Max," he said pointing at her, "might be the person to get you out of here."
 
-# Ch 17 Teatro del Lago #
+# Ch 15 Teatro del Lago #
 
 Ever since that night, she had turned over the plan in her mind again and again. She didn't know if it would work, but it seemed like the only the opportunity they would have to make a clean break from the hotel.
 
@@ -1369,7 +1369,7 @@ The guards stood down, even as Xavier gained on them, screaming at them to stop 
 
 She looked back as more people gathered on the shore and they drifted into the lake's flat, dark distance, leaving the hotel behind them.
 
-# Ch 18: Company Town #
+# Ch 16: Company Town #
 
 The old man piloted the small boat further out into the lake's expanse of open waters. The lights from the hotel were nothing more than a glow above the trees in the waning darkness. She felt numb as the boat chopped through the waves, bouncing up and down as they picked up more speed.
 
