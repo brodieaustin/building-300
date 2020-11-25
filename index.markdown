@@ -888,7 +888,7 @@ She turned to leave through the lounge's front door, but Max gently held her bac
 
 She leaned into the crashbar and entered into the chill of the early evening air. The early evening light that accompanied the early evening air still made her eyes flinch. She had been inside the Sandpiper's dim four walls so so many hours now. Even though the air and light was startling, and she hugged herself in the chill, her body suddenly felt looser than it had. She felt the weight of working lift from her. Again, she could hardly believe that she felt this way out in the open, exposed to the world. But here she was, wearing a uniform, walking back to the barebones cabin, seemingly part of some oasis of the old world that someone willed into existence.
 
-# Ch 14: Imposters #
+# Chapter 14: Imposters #
 
 She woke in the morning in a daze, hardly aware that she had even fallen asleep the night before. The cabin seemed colder than before, even under the threadbare blanket that had been placed over her. The old man was already up and getting dressed. "Good you're finally awake. I'm expected to report for work soon. When are you due back?" She shrugged in response.
 
@@ -1011,7 +1011,7 @@ Just as Alex was leaving, Max returned with a towel twisted around a few cubes o
 She shook her head, not so much for agreement, but for comprehension. At that moment, she didn't think she could fall asleep and go back into the lounge and be the silent witness to the men's  gossip and bad behavior. But, as she got more tired and could feel the trickle of melting ice running down her hand, she couldn't see an immediate way out their situation. Like she had done so many times before, she was able to coerce her fear and doubt into hardened resignation. With that inert feeling coming over her, she finally fell asleep.
 
 
-Ch 16: The Visitor
+# Chapter 15: The Visitor #
 
 Within a few days, the old man was well enough to return to work. He was put on the "landscape detail" at first which required him to be outside and a distance from the hotel. After weeks of this, winter had set in fully and the landscape detail was reduced down to a few people. He wasn't given a heavy coat or gloves or much protection from the cold.
 
@@ -1240,7 +1240,7 @@ The old man seemed resolved to ignore this advice, "I can't do that. My son is o
 
 But your friend Max," he said pointing at her, "might be the person to get you out of here."
 
-# Ch 15 Teatro del Lago #
+# Chapter 16: Teatro del Lago #
 
 Ever since that night, she had turned over the plan in her mind again and again. She didn't know if it would work, but it seemed like the only the opportunity they would have to make a clean break from the hotel.
 
@@ -1369,7 +1369,7 @@ The guards stood down, even as Xavier gained on them, screaming at them to stop 
 
 She looked back as more people gathered on the shore and they drifted into the lake's flat, dark distance, leaving the hotel behind them.
 
-# Ch 16: Company Town #
+# Chapter 17: Company Town #
 
 The old man piloted the small boat further out into the lake's expanse of open waters. The lights from the hotel were nothing more than a glow above the trees in the waning darkness. She felt numb as the boat chopped through the waves, bouncing up and down as they picked up more speed.
 
@@ -1406,4 +1406,38 @@ She didn't know how they were piloting such a large ship through the debris. But
 He banged the boat into the empty place to dock and killed the motor. She got out first. He handed her a rope and did a twirling motion with his index finger to indicate that she needed to run the rope around the cleat to hold the boat.
 
 
-With the boat nominally secured, they navigated the deck's many steps and platforms. She tried the restaurant's back door but it was locked. "Over here," he whispered. On the side, one of the restaurant's basement windows had been kicked in. He kneeled down and tried to look. "It's dark. Can't see much. It'll have to do."
+With the boat nominally secured, they navigated the deck's many steps and platforms. She tried the restaurant's back door but it was locked. "Over here," he whispered. On the side, one of the restaurant's basement windows had been kicked in. He kneeled down and tried to look. "It's dark. Can't see much. It'll have to do. You go first."
+
+She slipped her backpack off with a shrug and tossed it in before slinking her way through the window. The old man tossed his pack to her and backed his way down to the dark basement's floor too.
+
+Before putting her backpack on, she fished out a flashlight she had found. It was a find because it didn't require batteries. She shook it up and down a few times and a dim yellow light eeked out from the flashlight's lens. The light was dim and poor, but it was enough to figure out the contours of the basement. There were metal food prep tales scattered aroudn the room. A metal wire shelving rack had been overturned at some point. A row of washing machines and dryers lined another part of the basement. On the opposite wall was a large metal door, which must of have been a walk-in freezer.
+
+"No supplies," the old man commented. "Place has been picked clean."
+
+She wasn't surprised. In the early days, a restaurant was a choice target for looters, then survivors. It never hurt to check things out more thoroughly though. She gave the flashlight another couple of shakes and approached the freezer. She regretted opening the door as soon as she did. A foul stench escaped from the freezer, causing her to gag and almost throw up. She reeled back, and the old man jump forward to shut the freezer.
+
+"Don't need that getting out," he said. "You okay?" she nodded. "Let's go upstairs and wait it out until that ship passes."
+
+They found the stairs leading up to the main level. Fortunately for them, the door leading into the first floor was unlocked, but it was swollen shut. She had to bump it pretty hard with her shoulder to get it to budge.
+
+The door led them out into the restaurant's kitchen. The kitchen, even in the dim dirty light that eeked in from the windows and the front of the house, reminded her instantly of the kitchen at the hotel. A wave a regret, even nostalgia, swept over her. But she had survived worse, and shook off these feelings quickly.
+
+"Stay low, I'll see what's going on outside." She crouched down behind a dish washing station, keeping her ears trained for the sound of people approaching. The old man disappeared into the restaurant for several minutes. She tried to keep her heart from pounding out loud in her chest, but she couldn't quiet it. She even felt the need to control her breathing.
+
+Suddenly another piece of a memory overtook her. She was back in the tent city, crouched low, moving fast to avoid the inspectors who would routinely round up people from the tent city. Those people never appeared. They were often children, or even young adults. She looked young for her age. When her tent mate was disappeared one night, she knew it was a matter for time before it happened to her too. Every step, every breath had to be monitored and controlled. That wasn't the first time she had leaned on these hard won skills, and it certainly wouldn't prove to the last.
+
+She almost cried out, startled, when the old man was suddenly crouched over her, saying harshly, "We have to hide. They're coming." They started to shuffle back to the door to the basement. She could hear the radio chatter that announced the hunters the ship had sent out to collect them. Their careful evasions hadn't been effective after all.
+
+She went first downstairs. The old man quietly closed the door behind them. Scanning the room, she saw two options before them--escape through the windows and find shelter. Or hide in the freezers. She knew the window was risky, but hiding in the freezer seemed like the worse of the available options.
+
+Without evern realizing it, her survival instinct, the instinct that had guided her and protected her this far, overwhelmed the part of her that wanted to pretend that escaping through the window was the best possible choice. She pivoted towards the freezer, opened the door to the rush of the terrible rotten smells, and waved the old man inside.
+
+She closed the door on them. The flashlight had just enough energy to light up the freezer's interior so they could find a place to settle. There was one dry spot in the far corner, so they huddled there together, both of the gagging and trying to breath in a little of the rot as they could.
+
+Crouched there in the dark and stench, the heavy freezer door muffled the sounds around them, but they stil could hear footsteps overhead, more radio chatter, and voices. The voices, like so many voices heard from afar, voices to avoid and flee, took a quasi-military tone, barking out commands as if they had been learned from a movie. She could almost picture what these hunter must look like: bearded, draped in tactical gear, sunglasses perched on the brims of their sweat stained hats, and guns perched at a dangerous tilt towards the ground. She had seen men like this more times than she cared to remember and hoped that her track record of avoiding being caught by them continued.
+
+For several minutes, it seemed like the hunters would complete their sweep, call the space clear, and return to their ship. But that's not what happened. The door to the basement creaked open, following by a single foot step, then another. "I'm searching sector B," a voice said, echoing and loud in the basement's rough concrete environment.
+
+"Roger that," a crackling radio voice replied. Static and another radio voice, "East side is clear."
+
+Then another voice, "Keep searching. The engine's still hot. They're somewhere." So, she thought, the boat gave them away. If they had had more time, maybe they could have sunk the boat and disappeared completely. Instead, they were leaving traces behind them were leading these hunters right to them.
