@@ -1,4 +1,4 @@
----
+treacherous---
 layout: base
 ---
 
@@ -1369,7 +1369,7 @@ The guards stood down, even as Xavier gained on them, screaming at them to stop 
 
 She looked back as more people gathered on the shore and they drifted into the lake's flat, dark distance, leaving the hotel behind them.
 
-# Chapter 17: Company Town #
+# Chapter 17: No Wake Zone #
 
 The old man piloted the small boat further out into the lake's expanse of open waters. The lights from the hotel were nothing more than a glow above the trees in the waning darkness. She felt numb as the boat chopped through the waves, bouncing up and down as they picked up more speed.
 
@@ -1389,6 +1389,8 @@ He piloted the small boat even closer to shore before saying, "Look at that up a
 
 "There, I thought so. I must be an old harbor up there. See those lines, those are masts from old sailboats. And there are bouys floating in the water that used mark the entrance. Hold on, I'm going to pick up speed." He opened the throttle and the boat pitched back as it bound through the water and waves.
 
+[say something about no wake zone signs bobbing in the water]
+
 At the harbor's entrance, she realized that the ships they had seen were remnants of sunken or skuttled ships that had been abandoned. The harbor was littered with these ghostly remains of what had once been pleasure boats for people to enjoy their leisure out on the open water. Now, they were dodging around them, fearful of being captured and bonded to servitude.
 
 At the edges of the harbor, old empty buildings stared out over the water, disinterested in the question of what would become of them. Just ahead, they could make out another inlet that, once they entered it, became some kind of canal or waterway that seemed to continue on without stopping for quite some distance.
@@ -1404,7 +1406,6 @@ She didn't know how they were piloting such a large ship through the debris. But
 "We need to find a place to hide, now," the old man said. Just up ahead, there was an empty space in dock built on to an old restaurant. A few broken tables and chairs still littered the elaborate deck that had once hosted people on the canal water. He pointed out the empty space, saying, "that might be our best option. Get ready to grab your stuff and run to the restaurant. We'll hide in there. Hopefully they'll pass by and we can resume our trip."
 
 He banged the boat into the empty place to dock and killed the motor. She got out first. He handed her a rope and did a twirling motion with his index finger to indicate that she needed to run the rope around the cleat to hold the boat.
-
 
 With the boat nominally secured, they navigated the deck's many steps and platforms. She tried the restaurant's back door but it was locked. "Over here," he whispered. On the side, one of the restaurant's basement windows had been kicked in. He kneeled down and tried to look. "It's dark. Can't see much. It'll have to do. You go first."
 
@@ -1440,4 +1441,162 @@ For several minutes, it seemed like the hunters would complete their sweep, call
 
 "Roger that," a crackling radio voice replied. Static and another radio voice, "East side is clear."
 
-Then another voice, "Keep searching. The engine's still hot. They're somewhere." So, she thought, the boat gave them away. If they had had more time, maybe they could have sunk the boat and disappeared completely. Instead, they were leaving traces behind them were leading these hunters right to them.
+Then another voice, "Keep searching. The engine's still hot. They're somewhere." So, she thought, the boat gave them away. If they had had more time, maybe they could have sunk the boat and disappeared completely. Instead, they were leaving traces behind; they were leading these hunters right to them.
+
+It was only a matter of time before the door opened and they would be caught. She wouldn't resign to that fate. She nudged the old man and pointed at the damp boxes of rotting food and then at the door. He nodded and picked up one of the boxes. They crept closer to the door. She crouched, ready to spring forward as soon as the door opened.
+
+A crack of light appeared along the heavy door's frame. The light bounced up and down. The hunter was opening it with one hand, holding his rifle in the other. As soon as it opened, he was off balance and they struck. The box of fetid meat splattered over him in a cascade of sour blood. The guard stumbled back, "Oh, shit." He said.
+
+She leaped out of the freezer and threw her full body's weight against him. Her energy and the element of surprise sent the burly man crashing to the floor. Using all of her weight to keep him pinned down, she grabbed the pistol from her waistband and started to use it as a club. The old man rushed over and wrested the rifle away just as the hunter's finger went limp as he lost consciousness.
+
+"Come on," he said. "We need to move," he said, rushing to the window. He slung the rifle over his shoulder awkwardly and positioned himself by the window to hoist her up. She planted her foot in his hand and propelled herself the rest of the way through the window.
+
+Outside she scanned the area, didn't see anyone, and turned back to help the old man up and out of the window. Bue he wasn't there anymore. She crouched down and peered through the window. He was heading to the stairs. He turned momentarily and said, "I need you to run and dont't turn back. Keep heading to the plant. I'll find you there. She could just make out his feet hitting the stairs. He was heading back up into the restaurant.
+
+At the first crackling burst of shots, she ducked and dashed to the next building, then along a fence. She wedged herself through a break in the fence, some of the rotting wood giving way to her forceful shove.
+
+From there she ran, as fast as she could remember running, leaving the bursts of gunfire in the distance. She hit a road and ran even faster, if that was possible. She wove her way around building, through parking lots.
+
+She crossed over train tracks and passed an old train station. At the far end of the parking lot that must have been used by people commuting to and from work, she noticed an van parked at an odd angle. She started to run towards it, think it could provide temporary shelter.
+
+As she got closer to it, she realized that the door was cracked open, just slightly, but enough that she could see a sliver of a person. And that person was waving her towards them, waving her to approach the van. Normally she would have been wary of someone trying to lure her in to a confined space like this, but in her panic, she decided it was worth a risk.
+
+When she was mere feet away from the van, the door flung open. A woman, maybe ten years older than herself, stood to the side, "Get in, hurry up." She crashed into van's interior and crumpled on the floor.
+
+Tears started to well up in her eyes and trickle down her cheek. The tears became sobbing, and she was suddenly saying in a whisper, "Why...why is this happening..."
+
+The woman who opened the door kneeled down to comfort her, but she shrugged away the overture. "It's okay. It will be okay."
+
+In her sobbing voice, she replied, "No it won't. It's not okay. I just want to go back. Why can't I just go back."
+
+"Back home, back where?" was the woman's reply.
+
+She didn't answer, but she meant back to Building 300, back to the bunker where she had finally felt like she had escaped the world and all of its terrors. Images of the shoreline, the signs, and the peaceful walks in the hidden ravines flashed through her mind. For a brief moment, her life, no her existence, had reached an equilibrium, a delicate balance in her ongoing fight to live.
+
+But the old man had washed ashore and she had let that change her trajectory. Why? She had not thought about the question. And she didn't have a real answer. He was just a person, passing through this world, a relative stranger. No more known to her than the women mere feet away from her, or the hunter she had killed or nearly killed.
+
+Yet here she was, sobbing in this van, unable to shake the image of the old man being captured or worse. The image pushed those tranquil images of the building and the peaceful fall walks. Once again, her thoughts were taken over by violence, fear, despair. She wanted to away, but had no resource to make this happen.
+
+"Suzanne, we need to get out of here, or go dark," another woman's voice from the driver's seat said.
+
+The woman, Suzanne, went to the windows and raised a pair of binoculars. "This transporter isn't moving. They're still searching. We need to lie low for now."
+
+"Got it. You got the windows."
+
+"I do." Suzanne pulled at black rolls of fabric above each of the van's windows. One by one the van's interior went closer and closer to dim darkness.
+
+She looked up at a steady hissing noise and could feel the van lowering. Suzanne crouched down again, but didn't get as close this time. "Blackout procedure. Try to make ourselves blend in as much as possible. And we'll wait them out. Not the first time we've done this. Not the last."
+
+The other woman blacked out the windshield and two windows up front. Then she joined them in the back of the van. "How is she?"
+
+Suzanne responded, "She'll survive." The other woman grunted a sarcastic "hrmph" in reply.
+
+Silence fell over them as they sat on the van's hard floorboards. She let the dim darkness swell over her and closed her eyes. Her breathing blocked out most of the sounds around her.
+
+The silence held until the same sounds of radio chatter from the restaurants grew louder and louder. The woman named Suzanne crept towards one of the black out curtains and peeled back a corner. "One of them is heading this way. No moving. No sounds." They could hear footsteps pass the van then circle back. Suddenly the backside creaked and bowed. The hunter must have been resting against the van's bumper. The man started talking to himself, "Fuck, I'm tired. I hate it when they run."
+
+A voice on the radio interrupted his private conversation, "Unit 3, report."
+
+"Nothing. Just shitty broken down cars and trees."
+
+"Roger, return to ship. We're leaving."
+
+"Fine," the main said. "Unit 3 will haul his tired ass back to the ship." The van creaked again as the hunter stood up and crossed back the way he came.
+
+Suzanne peeked out again, and finally said, "Okay the transporter is moving on. Leta, let's get out of here."
+
+The other woman, Leta, moved back to the front of the van. They both removed the blackout curtains and got the van ready to run again. Suzanne went back to the front to sit in the passenger seat. She seemed to be working a radio as well, "Tell the Sovereign we're returning to Main Branch." The van hummed to life and rolled silently away.
+
+Though she was disoriented, she could felt like they were traveling in the wrong direction. She looked out the windows. They were driving down a wide street with ruined shops, gas stations, and warehouses. She had lived in places like this growing up, big fields of concrete sprouting up square steel buildings.
+
+"Stop," she said quietly. "Please, please stop."
+
+"We can't do that. Once we report we're returning we have to return. Sovereign's orders."
+
+"I don't care what your orders are. I'm not going with you. Let me out."
+
+The other woman, Leta, took a gruffer tone, "You need to sit down, we're not turning around, not veering from the course. Sovereign's orders."
+
+She drew the gun up and stepped towards them, "I said stop the van."
+
+Leta stopped the van and said, "I knew we shouldn't have taken her in. Now look at this shit."
+
+Suzanne tried to stand up, but she waved her down with the gun, "No. You sit." She pointed the gun at Leta, "Please stop the van. I don't want to shoot you. But I need to get out."
+
+Suzanne tried to plead with her, "This isn't necessary. Let's just stop and talk it over. I think we can convince you why it's better to come with us."
+
+Leta was less diplomatic, "There's nothing out there for you and we have orders." She was slowing down the van in spite of her protests. She look at her square on, "Where exactly do you expect to go? Back to those hunters? They're animals. We're out here trying to rescue people like you. Risking our lives for you."
+
+"I was...I was with someone. He was captured. I have to find him. I have to try..."
+
+"Why? Do you even know what's out there, where those hunters were going."
+
+"No."
+
+"Figures, you'll end up like the rest of cargo. Slaves to work the plants. That's all they are there. Slaves."
+
+"I'll take my chances."
+
+Suzanne gave Leta a stern look before saying to her, "Okay, we'll let you go. But we're going to do it our way. Right now, we're exposed. We need to move. We'll take you to a place where you'll be able to sneak into the facility."
+
+"No tricks?" was her response.
+
+Suzanne shook her head, "No, no tricks. But you need to trust us. Like Leta said, we took a risk trying to protect you. You owe us this much."
+
+She lowered the gun and sat back down. The van hummed forward again. They traveled on the same road at first. She started to grab for her gun again, thinking she would have to force her way out of the van. But the van turned off to the right, which felt like the right direction.
+
+She kept watch through the window and could see the power plant looming in the distance. The smoking towers and buildings became more and more detailed. They made several more turns, before driving down a wide road surrounded by trees. The plant was harder to see now, but the smoke still hovered above everything.
+
+They made another right turn. Old sign posts still stood by the turn, but the sign had long since been torn off. Suddenly, the van stopped, she lost her balance and lurched forward. She instinctively regained her balance, ready to defend herself.
+
+"Roads blocked," Leta announced.
+
+Suzanne opend her door and said to her, "Need your help. Might as well bring that gun with you."
+
+The van's side door opened and she hopped out onto the grassy stretch of pavement that led into the trees. Up ahead was a gate, but before that was a tangle of branches that had been laid across the road. Suzanne pointed at the branches. "We have to clear that branch enough to get round them."
+
+She started for the middle to grab a branch, but Suzanne stopped her, "No just the side, don't want to make it too obvious that we've been here."
+
+So they both started at the right edge of the pile and began moving what they could. After a few minutes of work, Suzanne waved the van forward. Leta backed up then turned off to the right. There was just enough clearance between the road's shoulder and the path they cleared to get around.
+
+They both got back in the van. The gate was broken, so they passed that easily and continued down a window drive. They stopped right as the trees begin to clear.
+
+"This is a as far as we go," Suzanne told her. "That's an old waste water plant up ahead. There are access tunnels that lead from there to the power plant."
+
+She looked ahead and could make out the anonymous brick building standing next to series of short water tanks.
+
+"If you change your mind and manage to get out, head west and south. There are train tracks that will lead you right to us. Look for a large white building by the tracks. You'll know when you've found us. We're trying to find survivors and make a path forward."
+
+Leta merely said, "If you get caught, you never saw us, okay?"
+
+She replied, "I get it."
+
+Suzanne got out again and opened the van door. She hopped down once more and adjusted her backpack. She started towards the water plant but stopped and said to Suzanne, "Thanks for helping me. Sorry about the gun."
+
+"I'll let it slide this time. I hope you find your friend."
+
+"Me too," was her response before we walking away.
+
+# Chapter 18: Company Town #
+
+She couldn't find the opening to the access tunnels at first. It wasn't until she passed a large, empty water retaining basin that she saw a tunnel leading underground. Unlike a few of the other tunnels she saw, this one was large enough to enter, and had signs that people were using this tunnel. The signs were subtle, but series of marking had been painted on each side of the opening. Lines and squiggles that she had learned, like so many people surviving in this world, meant "safe passage."
+
+The tunnel's opening was large enough to illuminate the first hundred feet or so. She finally reached a point where she needed to shake her flashlight to life to see well enough. The tunnel wasn't trecherous at this point, but there was a debris and a wide-enough puddles of water that needed to be dodged.
+
+The flaslight had be to shaken a few times before she reached a place where the tunnel had caved in. There were two access doors on either side, and she wasn't sure which one to choose. She realized quickly that the choice was made for her because the door to the left was jammed shut.
+
+So, she opened the door to the right and started to step through. Her foot hit nothing but air and she grasped at the door frame to stop her from falling down the shaft. Her flashlight wasn't so lucky. It clanked down into the darkness and landed with a little splash that reverberated back up to her. She peered down into the dark tunnel and could pinpoint the flashlight, lying there, letting out a pinpoint of light. Descending the crude ladder made of bent rebar would be harrowing, but not impossible with that light to guide her.
+
+This time, she didn't rush into things, and tested the first step with one foot and then the other. Feeling confident that it would hold her weight, she started down. After a few steps, her head started to swim and her heart raced.
+
+She remembered that she had always been afraid of heights. With each step down, she felt her hands wanting to release and her body cast itself down the shaft. That fear desperately wanted to manifest itself, make itself real, exercise its power over her. She stopped to try to push down the fear and got control of herself again. Once she did, the flashlight went out in a sad, dim, blink. Now she was descending in complete darkness.
+
+Breath by slow breath, she made her way down the ladder. At last she reached the last rung, confirmed, by her right foot dangling in empty space, unable to fine another foot hold. The empty absence of light was suffocating all of a sudden, particularly knowing that she would have to drop down into it. She knew that there was a bottom to the tunnel below and a firm place to land. But her fear couldn't resist conjuring up images of freefalling and never landing.
+
+A more practical concern, she realized, was trying not to shatter the flashlight when she landed. But there was no way to know for sure if this would happen. She had to drop down and make the best of what would come next. So, she let one foot and then another dangle down. She started to lower her weight down and shift her hands, one by one to the last rung. At last she was hanging completely from the last rung. For some reason, she closed her eyes and let go.
+
+She did not gracefully, but she landed. The only downside was that she landed and then rolled back, splashing into the standing water. She picked herself up out of the wet, soaked but otherwise happy to be standing on something firm.
+
+She gingerly toed the water for her flashlight. After getting her feet even more soaked than they were already, she nudged up against it and picked it up. She wiped it down hastily against the bottom of her coat and started to shake it. After a few shakes, it didn't want to light up again. But she kept at it and at last a dim light trickled out from the bulb. There wasn't much light, but it was enough to create a little pocket of light around her.
+
+With her flashlight restored and illuminated, she kept tromping through the tunnels, following bends, deciding to keep going right when forced to make the choice. It seemed like every ten feet she needed to give the flashlight another little shake to keep it lit up.
