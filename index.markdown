@@ -1,4 +1,4 @@
-treacherous---
+---
 layout: base
 ---
 
@@ -1600,3 +1600,153 @@ She did not gracefully, but she landed. The only downside was that she landed an
 She gingerly toed the water for her flashlight. After getting her feet even more soaked than they were already, she nudged up against it and picked it up. She wiped it down hastily against the bottom of her coat and started to shake it. After a few shakes, it didn't want to light up again. But she kept at it and at last a dim light trickled out from the bulb. There wasn't much light, but it was enough to create a little pocket of light around her.
 
 With her flashlight restored and illuminated, she kept tromping through the tunnels, following bends, deciding to keep going right when forced to make the choice. It seemed like every ten feet she needed to give the flashlight another little shake to keep it lit up.
+
+It wasn't long before she started to see the signs of people living in the tunnels. First she noticed a pale glow of candles and torches bouncing on the tunnel walls. The tunnel had grown wider, wide enough for people to have begun constructing small shelters along the tunnel walls. For every cardboard and metal shelter, there were plenty of people sitting or sleeping in blankets, old military sleeping backs, with their backs pressed up against the tunnel's concrete sides.
+
+Most of these people were too tired or too indifferent to notice her passing through their squat. She wanted to keep it that way, and kept her flashlight down and her steps light. Up ahead, she could see someone climbing down another access shaft and trudging to a makeshift shelver. The person had something under their arms, but she couldn't make out what.
+
+The person, who she tought she could make out to be a man now, stopped near her and crouched down by a hunched up woman who seemed to be holding something herself. The woman was crying, sobbing in fact, but quietly so. The man was trying to soothe her, comfort her, with whatever he had brought with him.
+
+Closer still, she saw that the package was a few scraps of food and a crumpled up bottle of water that seemed to be half full. The woman did not seem comforted. The man tried to offer the water to the thing in her arms. A child, not a small child, but a hungry tired one that looked like it had been chewed up by the world.
+
+"It's no good. She's sick and it's no good," the woman said.
+
+She veered off of her path towards the exit and said in her new quiet voice, "What's wrong?"
+
+The woman looked up at her and stared at her through tears. The man looked back and forth and said, "Who are you?"
+
+"Nobody, just passing through."
+
+"How did you get down here?" he said.
+
+"I... I just did. It's not important. I'll leave you alone."
+
+"No, stop," the woman said.
+
+"Emma, you know the rules," he said to the women.
+
+"But maybe she can help."
+
+She stepped a litlte closer, "I don't know for sure. Is your kid sick?"
+
+"Yes," the woman said with a new heave of sobs.
+
+The man stood up and approached her, drawing her back from the scene. "Look, I know you're trying to help, but you're not even supposed to be down here, and we could get into trouble talking to you. So why don't you just leave now and pretend like you never saw us."
+
+"But if your kid is sick, maybe I can help. I have some medicine in my pack," she protested.
+
+"It's not my kids," the man said with a kind of despairing finality, "It's not even hers. I tried to convince her to just leave the kid alone, but we found it on our way here, and she wouldn't take no for an answer. Now we're stuck down here and the kid's sick."
+
+"What's wrong?" she asked.
+
+"I don't know. Fever? Who knows?" he replied.
+
+She flipped her backpack under her arm and fished out one of the bottles of ibuprofen she had found in the empty house. "Here take this. I found it. Look the date still says it's good." She grabbed the man's hand and pushed the bottle in his hand.
+
+"We can't take this. This worth something. They're wonder how we got it."
+
+"Don't let them find it. And just take it."
+
+"Why are you doing this?"
+
+"That kid looks to be about the same age my little sister was when... And there wasn't anythign I could do to help. And I begged and pleaded for someone to help. For anyone to do anything. No one would even acknowledge me. My sister. She just died. A little kid like that."
+
+She wiped a tear away and started to head for the tunnel exit. The man called after her, "Wait." He caught up with her, "You better be careful up there. It's dangerous."
+
+"Do you work in the factory?" she asked.
+
+"Do you think we'd be living like this if we worked in the factory? No we 'd be in town. The tunnels mean you're trying to get into the plant or you couldn't cut it. We just hang on to the edges, scrounging for what we can find. Just trying to survive until we get a break. But look, they don't take kindly to strangers up there. So watch your back and try go hide in plain sight as much as you can."
+
+"I'm looking for someone."
+
+"Do you even realize how many people they have packed into the town up there?" She shook her head "no." "Well it's a lot. It's not easy to find someone."
+
+"He was just captured probably brought in a few hours ago."
+
+"By ship?"
+
+"Yes."
+
+"There's a holding facility near the water. The ships empty out there and then back into the lake. They keep newcomers there while they assess them and figure out where to place them. If you ask around, you might be able to learn about whoever you're looking for."
+
+"Thanks, that's really helpful," she said.
+
+"Thanks for this," he replied, shaking the medicine lightly. "This is helpful too."
+
+She headed up the access tunnel and into some kind of annex building. More people were living in a shanty town that had been built here. The only difference here was that people had set up some kind of trading post. Ragged, tired people were lined up with whatever pickings they had to trade for whatever was being traded by the man behind the post's counter.
+
+Taking the mans's advice, she tried not to study the scene too long to avoid any unwanted attention. She threw her jacket's hood up over her head and tried to stay away from people as best as she could. When she reached the door, she happened to look back. The man she gave the medicine too was in the line, rattling the bottle and counting the number of pills in his palm.
+
+The deception didn't bother her. She had seen it done so many times that it seemed as normal as walking or breathing. She did shake her head over the fact that she was duped and realized that she would need to be more careful outside.
+
+As she stepped out into the day, she entered a swirling whirl of people. There were bodies moving in every direction. Stands and stalls were set up, people were bartering and buying. Workers in safety hats trudged in ragged lines to and from the plant. Children were running crisscross against every possible orderly line.
+
+She remembered seeing old films of cities, playing back at weird speeds so the people seemed to be bouncing from step to step. Horse carts running in every direction. Trains fighting with people for space. This scene in the factory town resembled that. Chaos, motion, life.
+
+Since she had nothing to work on but the information that the scammer gave her, she took the information and ran with it. It seemed reasonable to search out where the transporters docked and start looking for the old man. A group of children immediately tried to halt her progress. But she knew this trick and wrapped herself up tight and slipped through their grip.
+
+She was distracted, however, by a mewling cat that seemed to following a parallel course to hers. It wove in and out the carts and stalls. At a break in the street, it stopped, rubbing up against an old light pole. She tiptoed over to it and kneeled down, holding out her hands in snapping waves to entice it to her.
+
+The cat agreed to approach her and trotted towards her with its tail upright. It sniffed her hand then lunged its body against her, marking her with its scent. As it circled back around, she tried to pet it again, but the cat hissed and ran off.
+
+As she got closer to the plant, the air started to feel heavy and strange smells circulated around her. She could make out the top of one of the ships in the distance too. She was getting close. The crowds of people had dissolved into groups of workers. Some seemed to be entering the plant, some leaving. Others were huddled along the streets, taking a break. She saw several workers curled up with their heads resting on their hard safety helmets, catching some semblance of sleep before it was time to return to another shift.
+
+Now that the people are her were primarily workers, she worred about standign out and being stopped. She tried to get off of the main streets, but encountered barriers and fencing everywhere she turned. So, inevitably, she tried to blend in with these people as well as she could.
+
+The plant loomed over her now. It was really a massive complex of buildings. Ladders and gangways crisscrossed from structure to structure. Little buildings nestled against big buildings. Lights flashed in different colors and sequences. Noises everywhere.
+
+Up close, the plant looked like some terrifying creature that had emerged from the waters and taken up residence on the lakeshore. It made everything dirty and smelly around it. And yet, somehow, people had managed to bring this relic from the old world back online, make it operational again. She could only imagine how this happeend, who made it happened. It was awe-inspiring and terrifying to consider who such a person might have been.
+
+"You shouldn't stand gawking in the middle of the street, girl," a gruff voice said. A heavy hand grabbed her elbow and wrested her off into an empty building nearby. Once the hand let go, she instinctively reached for the run, maybe to pistolwhip the person and run away. But the heavy hand was too quick and caught her wrist, "No reason for that." The other hand clicked on a flashlight and shone it in her face.
+
+The light from a nearby window illuminated the person enough for her to make out someone wearing a uniform of some kind, an old armored vest with straps and pockets dotting it. The man was large and hulking, but she suddenly wasn't threatened by him, but not quite sure why.
+
+"I'm supposed to get you into the processing facility, though why you want to go there is beyond me," he said. She started to reply, "And I don't care. Don't need to know. I'm getting paid for this, so let's leave this strictly as a business arragnement. Got it?"
+
+"Yes, but who are you? How did you find me?"
+
+The guard set down on a desk that had been pushed carelessly against a nearby wall. He removed his helmet and smoothed over his thinning hair. "Find you? You weren't hard to find. Newcomers aren't hard to find the company town. Believe me. And stopped to pet that cat? Dead giveaway you were just a visitor. Besides he gave me a good enough description."
+
+"Who's that?"
+
+"I don't know names. I don't want to know names. But the friend you made in the tunnels set this operation up. Usually townies and tunnelers aren't supposed to mix. But in my line of work, it's best ot keep all of your options open. Besides those tunnelers can work a trick or two in their scavenging. Being a guard ain't exactly a lucrative occupation, if you understand me."
+
+"Seems like a dangerous job," she said, considering what it must be like to be muscle in a place like this.
+
+"Dangerous. Shit, there's a riot nearly every week. But we beat them back. At least, I'm not on a hunting detail anymore. Gave that up a while ago. Bad knees," he said, rubbing his knees caps to illustrate his point. "Alight enough story telling. We got to move quickly if we're going to get you in to that facility. Guard rotation happens soon, they'll be tired and distracted. So we better get moving. By the way, I may have to treat you a little roughly. Just so no one gets suspicious." His grin suggested that he wasn't too upset about this little bit of play acting.
+
+True to his word, his pushed her out of the door and out in the street. She lost her balance and he grabbed her up by the arm and pushed her again. They marched forward from there with him prodding her in the back periodically with the truncheon that he twirled while they walked.
+
+Off to the right she could see the holding area come into view. It was a long, low metal building. It probably had been an anonymous shade of beige at some point, but the paint was failing and streaks of rust ran down the building's sides. There was commotion everywhere. Dogs parked. Guards were shouting. People were crying out.
+
+The people were being led through a series of chain link gates and holding pens. The guard leaned into her, his breath smelled of old meat and warm beer, "That's where your friend will be. They move the acquistions through each processing phase. Take about an hour to clear someone to work. But first we're going to make a stop. I have to take a piss.
+
+He told her to wait outside while he did his buisiness. She stood at the corner of the building, trying to melt into a particlarly large patch of rust, hoping no one saw her. Most of the guards and hunters were either too preoccupied or too bored to take much notice of her. She took advantage of the moment to scan the crowds of people in the holding cell. The transport ship must have unloaded a hundred people. Bodies were pressed together tightly in the cells.
+
+From where she stood we could hear what sounded like a hundred langauges raising up in lamentation and cries for pity. While some of the people on that ship had been captured, like the old man, she guessed that many of them had willingly walked on board, lured by the promise of work and food and shelter. Lured much like the old man's grandson. From what she had seen so far, she didn't feel confident that they would find him or how they would find him. But she needed to focus on finding the old man and getting him out.
+
+It took a few more minutes for the guard to return. In that time, she continued to scan the faces. That's when she saw him. She could just make out his shoulder and profile. He was in what appeared to be the second of four or five holding pens. He was standing near the outeredge of the pen, unlike others who were trapped standing shoulder to shoulder in the middle of the crowd of people.
+
+He was facing away from her, so he didn't see her. But she knew for sure that it was him. She wanted to dash to the fence and let him know that she was there and would save him, but the guard's gruff voice interrupted her, "Found your friend yet?"
+
+"I did. He's over near the fence in the second pen."
+
+"Well, he wasn't rejected out right. That's a good sign. Let's see. How are we going to work this..."
+
+Again, he grabbed her by the arm and marched out into plain view for the guards and hunters and processors to see. A dog started to bark, which made the people in teh pen, the ones who still clung to some hope that their lives really were about to get better turned to study the commontion. Most just stood there, unconcerned and hollow looking. But the old man turned. For a moment, recognition and surprise flashed across his face. They exchanged looks, but he turned away quickly, tryign to act as if he had never seen her before and couldn't care less why the dogs were barking.
+
+The guard stopped at the chained entrance to the second pen where the old man was. "Stay here," he said and walked away towards one of the processors. The guard and the processor had an animiated discussion. Finally, the processor shrugged as if she had given up. Satisfied, the guard returned to her.
+
+"Okay then that's settled."
+
+"What's settled," she whispered, just as another guard approached. The guard unlocked the chain and opened the door. The guard that escorted her said, "Sorry it played out this way, but here we are." He shoved her into the pen and walked away.
+
+She rushed back to the door, trying to slip through it before it closed, but the guards were too fast. One rapped her hands and then the chain was locked again. She looked around bewildered. Had she been sold out? Had the guard double crossed her, or the man from the tunnel. It was too much to try to work out. All she knew was that she know being processed to work, just like the old man.
+
+He still hadn't made eye contact with her. She assumed he knew she was in the pen, but didn't want to make a scene. So, she took his lead and didn't rush over to him. It was hard to know what the rules were here. Were the processors inclined to separate people who seemed too familiar with each other? Or encourage it? She had no way of knowing, and didn't want to risk it. She may be in a cage, but she had at least confirmed that the old man was okay. With him in her site, maybe there was still a chance that they could get out of this mess.
+
+After several minutes in the pen, she stopped studying her surroundings so much and went into a neutral stance, waiting to see what came next. She stood there, staring at the ground, not saying a thing for quite a while before two guards and the processor entered the pen. The processor pointed to people and the guards dragged that people out of the pens.
+
+Was this how the process went? The people they dragged out wailed and screamed, but they didn't resist. Most of them seemed weak and ragged. Maybe they were sick. They surely wouldn't want a few carriers infecting their workforce. Once they culled these cast offs from the pen, another set of guards came to usher them away towards the plant.
+
+The guards started to herd the rest of them to the next empty pen. The dog, acting almost like a cattle dog in a stockyard, barked and snipped at the stragglers to get them to move on through. But the large crowd of people choked at the small entrance. She barely squeezed through with two other people, a ripped her coat pocket in the process.
