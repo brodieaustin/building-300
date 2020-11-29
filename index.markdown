@@ -1827,7 +1827,7 @@ She looked back at him and smiled, "Me too."
 
 They returned to their work for the rest of the shift until a voice crackled on the radio, "Shift over time to return." At this point, they were both damp from sweat and tired of being in the dark tunnels. But they still had several minutes to walk back. They were the last of the groups to return.
 
-As they walked back up the stairs to exit the facility, she felt a gun barrel poke her back. She turned to see the guard that had turned on her. "Surprised to see me again?" he chuckled. "Never miss an opportunity to fuck over a newbie. That's kind of an unofficial code around here. You'll get used to it. But it looks like you found your friend. So it can't be all that bad." She turned back with nothing to say and kept walking.
+As they walked back up the stairs to exit the facility, she felt a gun barrel poke her back. She turned to see the guard that had turned on her. "Surprised to see me again?" he chuckled. "Never miss an opportunity to screw over a newbie. That's kind of an unofficial code around here. You'll get used to it. But it looks like you found your friend. So it can't be all that bad." She turned back with nothing to say and kept walking.
 
 The barracks were quiet after everyone filed in and the beds stopped creaking. There were a few coughs and groans that quickly morphed into exhausted snores and grunts.
 
@@ -1835,4 +1835,58 @@ The next few days passed much like the first one had. After the required three s
 
 Already after just three shifts, she realized that she was walking with the same trudging resignation that she had seen in the workers in the town on her first day. The old man and her kept with the group for much of the walk back into the town and then broke off to hide in a alleyway between two ramshackle buildings.
 
-They crouched down with their backs to the brick. The old man took a deep, though labored breath, and sighed. "This seems like freedom now," he said. There wasn't a hint of sarcasm in his voice. And she understood why, being in the open, away from the barracks and guards and sirens and radio comms really did feel like freedom, or something approximating it.
+They crouched down with their backs to the brick. The old man took a deep, though labored breath, and sighed. "This seems like freedom now," he said. There wasn't a hint of sarcasm in his voice. And she understood why, being in the open, away from the barracks and guards and sirens and radio comms really did feel like freedom, or something close to it.
+
+"What do we do now?" she finally asked.
+
+"Now that we're free from the barracks, start looking for my grandson," he said. The old man didn't offer many more details than that. Looking out onto the street and seeing the numbers of people passing, where would they start?
+
+They finally roused themselves and started to look for some place to stay. Most of the lodging houses they visited weren't taking vouchers. Even saying they had a voucher changed the way people looked at them. They walked the whole day without finding anything. As it got dark they fell in with a group of people who were heading to the outskirts of town. They followed the people to a squatters community located under a broken fragment of an overpass.
+
+The section of overpass stood over the landscape like an ancient monolith, silent and without purpose now that its worshipers were no more. But the overpass provided shelter for the people huddled around campfires. Tents and tarps and pieces of boxes and metal were strewn about to make shelters.
+
+As they first entered the community, people were unloading the pickings they had found. A few people seemed to be workers in the plant too, probably people like them trying to find a place to live in the overcrowded company town.
+
+They edged up to a fire. The people already sitting and standing there gave them a passing look, but seemed uninterested. They were used to people passing through. The old man and her must not have given off any warning signs, so they were allowed to nestle by the fire and get warm.
+
+People starting passing scavenged scraps of food around, sharing what little they had. She dug into her backpack. Her supplies were thinning out, but she had a few things to pass around. That increased their approval around the fire, leading to a few nodding heads. The nodding heads led to some kind of drink being passed around. One of the residents said, "A little something we make up around here. Good for helping the days pass."
+
+The old man took a swig and coughed. The others laughed. She passed the bottle along, which seemed to be acceptable. After it circulated a few times, someone looked over at them and said, "You folks have a story to tell?"
+
+She looked at the old man and looked down and away. Storytelling their journey was the last thing she wanted to do right now. The old man straightened himself up a little, clearly trying to focus through the alchohol induced haze that was clouding his mind right about now.
+
+"Not much different than all of yours, I bet."
+
+Another resident said, "True, true. We all got here one way or another."
+
+"I'll drink to that," another said. They all shared a moment reflecting on the mixed fortunes that had led them to this squalid corner of the squalid company town.
+
+"This is my granddaughter. We heard you could make an honest living up here, got sent up on a transporter. Not quite what we had imagined."
+
+"You can say that," said another person, leading to a chorus of chuckles.
+
+"We're also keeping an eye out for my grandson. We got separated a ways back and thought maybe he had headed up here."
+
+One of the older participants in the circle learned forward, an older woman who had a course woven shawl drapped around her neck. "Hard to find folks in the town. You're lucky you haven't gotten separated from your granddaughter too."
+
+"True enough," the old man replied. "Is there anyway to locate people?"
+
+"Well, assuming he's here and not somewhere else, there's a way."
+
+"Mind sharing?"
+
+"I don't, but it'll cost you."
+
+"Cost us what?"
+
+"What else have you got in those bags?"
+
+Together they rummaged around and found a few food items, an old sewing kit, and a sweater that hardly had any holes in it. The woman seemed satisfied with these finds and scooted closer to them. "There's a market in the center of town. There's a stall there, sells books. If you ask the seller to see a copy of Hard Times, he'll hand you a book. Flip through it. People leave notes for people. People they're looking for, please they've lost. Look in there an you might find something about your grandson, or leave a note for him."
+
+"Thank you," the old man said. "He knew I was coming for him. I promised to find him. So, I wouldn't be surprised if he was checking."
+
+"Maybe he is. Maybe he isn't. When you're living in the shadow of the plants, people's priorities tend to change. Finding long lost relatives when you're just trying to survive doesn't seem so important. But who knows. Maybe you'll be a lucky one. Maybe your grandson will be standing there one day in plain sight. Me? I haven't had a happy ending like that in a while, so I wouldn't be so sure."
+
+The fires started be stamped out once night time set took completely hold over the day. People began retiring to whatever makeshift shelter they had staked out for themselves. One of the people sitting in the fire circle pointed out to them a blue tarp tied up over a few rumpled blankets. "That one's recently unoccupied if you need something over your heads for sleep. Can't promise it'll be yours tomorrow, but you can have it for now."
+
+The prospect of sleeping with something over their heads was appealing enough, but they did push the rumpled blankets to the side and opted to sleep on the hard ground. "Rather than end up waking up lousy," the old man said. She completely agreed and was content to slip into sleep and forget the outside world.
