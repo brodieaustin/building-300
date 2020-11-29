@@ -1750,3 +1750,41 @@ After several minutes in the pen, she stopped studying her surroundings so much 
 Was this how the process went? The people they dragged out wailed and screamed, but they didn't resist. Most of them seemed weak and ragged. Maybe they were sick. They surely wouldn't want a few carriers infecting their workforce. Once they culled these cast offs from the pen, another set of guards came to usher them away towards the plant.
 
 The guards started to herd the rest of them to the next empty pen. The dog, acting almost like a cattle dog in a stockyard, barked and snipped at the stragglers to get them to move on through. But the large crowd of people choked at the small entrance. She barely squeezed through with two other people, a ripped her coat pocket in the process.
+
+By the time they reached the fourth pen, she was almost shoulder to shoulder with the old man. She fought down the temptation to say something to him, to acknowledge that she was there to rescue him. At this point, it wouldn't have done any good because the situation was far from turning out how she imagined.
+
+The processor waved through the last batch of them. The door opened to a long corridor constructed from more chainlink fence that led to plant. As they were pushed through into this final passageway, one of the guards said in a booming voice, "Keep moving. Keep moving. Head to the barracks. You'll learn what's next once you reach the barracks."
+
+The building they entered actually resembled a barracks, like the kind she could imagine shoulders sleeping in. Rows of bunk beds lined each side of the long room. At the foot of each bed were coveralls and hard hats. Another person was waiting for them in the barracks and repeated loudly each time a new batch of them walked in, "Find an empty bed. You're required to stay here for three shifts before you're released into the town. You'll be given a voucher for housing. Use the voucher to find some place to live. Remember the voucher is a debt. You owe the company the value represented. You may not transfer the voucher. You may not barter the voucher. You may not lose the voucher. Any attempt to defraud the company and you will be shot on sight. You'll get further instructions when you start your shift in an hour."
+
+When the company representative left the room, the lights went dim. People began scrambling for beds. A fight broke out on the far side of the barracks. A man staggered away with the bloody nose, left to find another spot to lay down his head.
+
+She had managed to find a bed next to the old man's, but only after fighting off another woman who tried to claim the spot. They sat on the edge of their beds opposite each other and just sat in silence for a few moments.
+
+This wasn't how she expected her rescue to turn out, but she was relieve to have found him again. Finding him meant that there was some chance of everything working out they way it was supposed to. She didn't know how exactly that would happen, but it was better to be back together as a team than alone.
+
+"You alright?" he asked, trying not raise his voice too much.
+
+She nodded and said, "I'm okay. You?"
+
+He reeled back, stunned for a moment, "You're...You're talking now? I wasn't sure...""
+
+"Wasn't sure if I could? I wasn't either. But words just started coming out again. I don't know... Guess I felt like it was either that or lose everything."
+
+"I see. Well, that's something new. Did they catch you too?"
+
+She shook her head, "No, I came looking for you. To get you out of here."
+
+He leaned in closer to her and whispered in a harsh voice, "You did waht? What were you thinking!?" She was surprised to hear him say this, to hear him react this way. Why wasn't he relieved and grateful that she was there to help him. "I wanted you to get away, to not get caught up in this."
+
+"It wasn't supposed to be like this. I was trying to get you out."
+
+"And yet here we are trapped in here, waiting for whatever is goign ot happen to use on the other side of that door. Damn stupid."
+
+"Why can't you just say thank you. That you're glad to see me."
+
+"Why? I wanted you away from this. Even if you were stupid enough to come here, you could have at least tried to find my son. But it looks like you must have gotten caught up in some foolish scheme to get me out. Lot of good it did."
+
+She sat back in her bed, arms folded tightly across her chest. She couldn't think of anything to say, so she said nothing. She had to sit with the uncomfortable, harsh truth of his words. She could have gotten far away from here and gone on and survived. Or, at the very least, if she had kept her wits, she could have found his son. But that could have taken weeks. There was no guarantee that his grandson was even here anymore. But she knew she couldn't say any of those things to him.
+
+She rolled over on her side, bringing her legs up closer to her chest. She actually started to nod off in the little spare gap of time they were given. She wasn't the only one in the barracks trying to get even a little piece of sleep. The chatter in the died down. People that had learned to grab at sleep amidst waves of terror were used to sleeping when and where they could. These people were no different.
