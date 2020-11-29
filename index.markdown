@@ -1788,3 +1788,51 @@ He leaned in closer to her and whispered in a harsh voice, "You did waht? What w
 She sat back in her bed, arms folded tightly across her chest. She couldn't think of anything to say, so she said nothing. She had to sit with the uncomfortable, harsh truth of his words. She could have gotten far away from here and gone on and survived. Or, at the very least, if she had kept her wits, she could have found his son. But that could have taken weeks. There was no guarantee that his grandson was even here anymore. But she knew she couldn't say any of those things to him.
 
 She rolled over on her side, bringing her legs up closer to her chest. She actually started to nod off in the little spare gap of time they were given. She wasn't the only one in the barracks trying to get even a little piece of sleep. The chatter in the died down. People that had learned to grab at sleep amidst waves of terror were used to sleeping when and where they could. These people were no different.
+
+# Chapter 19: Walk the Lines #
+
+The people in the barracks began to rustle back to life when a voice shouted out, "Shift starts now. Time to get your assignments." She fell in line behind the old man and shuffled out with the rest of the newly acquired workers. Standing outside, waiting for them was a man wearing a safety hat and glasses, but otherwise dressed normally and a guard. Like the other guards she had seen, this guard looked bored, but seemed pleased enough to be cradling his assault-style rifle in ready-position.
+
+The group was broken up into three smaller groups. The group she was in was led outside and off to another part of the plant. They entered a another large building and spilled out onto a gangway. They were looking down over a room full of pipes and conduit running in a dizzying maze of directions. Many of them disappeared into shafts that cut into the ground in several directions as well.
+
+The plant operator led them down a clacking metal staircase. The temperature around them rose immediately. She wondered how anyone could keep straight where they all went. As they walked past she could see a riot of faded labels and safety signs, but many of them were unreadable now.
+
+They stopped below in the loud heat, surrounded by the pipes. The operator had a handful of cards and lanyards with walkie talkies. "You're job will be to walk the lines. You look for leaks, rust, anything that looks unusual and you report it. That's what you'll do until you shift is over. Report back here and you'll be cleared to return to the barracks. Someone will take you back. Sleep until the next shift and then you're back here again. Now pair off."
+
+As they were pairing off, the old man whispered something to the woman standing next him. The woman shrugged and jostled a bit closer to another woman next to her and paired off with this person when it came to them. That left the old man and her pairing off together. She was surprised he didn't try to join someone else for the shift. But she had learned enough about him to know that he probably had some plan he was working out and being paired off with him was part of it.
+
+When it was their turn, the operator gave them a card and said to them in his yelling voice, "This is your section. Head to the left into the access shafts and find that section."
+
+Together they followed these directions and headed into the dark shafts that led underground. They passed several other crews who were already starting their inspections. Their section must have been much further away. They kept walked for several minutes before they finally found where they were supposed to spend the next 8 hours.
+
+The space was cramped and hot. Small lights were strung up along the tunnel walls, but it was hard to see very clearly. "Not a lot to see down here," the old man commented, more to himself than to her. "Let's get to it."
+
+They paced back and forth in their section, checking ever so often to make sure that the pipes were intact and not leaking. The more they say of their section, the more she started to understand this job. Sections of pipe had been patched and repaired. The whole system seemed to be barely holding together.
+
+For the first several hours, they kept to their task and didn't say anything to each other. Finally the old man said, "I need to take a break." He lowered himself down to the ground and wiped the sweat from his forehead with end of his sleeve. "Now I see why they need so many people. This is exhausting. And tedious."
+
+She agreed, but didn't say anything. She wasn't sure what to say to loosen the knot of tension that had developed between them. So, she did what she had learned so well to do, and said nothing.
+
+Finally he looked over at her and said, "I'm not angry. I'm glad you're here."
+
+She looked back at him and smiled, "Me too."
+
+"But we aren't staying down here forever. We have got to find a way out of this mess."
+
+"There's a lot of guards."
+
+"True, but they don't seem particularly attentive. In fact, I'd say they looked pretty bored. They're pretty crooked too." She agreed with that assessment, but bribing guards obviously wouldn't get them very far.
+
+"We'll just have to keep our eyes open and see what happens."
+
+They returned to their work for the rest of the shift until a voice crackled on the radio, "Shift over time to return." At this point, they were both damp from sweat and tired of being in the dark tunnels. But they still had several minutes to walk back. They were the last of the groups to return.
+
+As they walked back up the stairs to exit the facility, she felt a gun barrel poke her back. She turned to see the guard that had turned on her. "Surprised to see me again?" he chuckled. "Never miss an opportunity to fuck over a newbie. That's kind of an unofficial code around here. You'll get used to it. But it looks like you found your friend. So it can't be all that bad." She turned back with nothing to say and kept walking.
+
+The barracks were quiet after everyone filed in and the beds stopped creaking. There were a few coughs and groans that quickly morphed into exhausted snores and grunts.
+
+The next few days passed much like the first one had. After the required three shifts were up, they were lined up outside the barracks and given their voucher to take into the company town. They also were given cards with their shift schedule on them. She and the old man would be able to continue on as a team on the same shifts, which seemed like a small turn of luck in an otherwise grim situation.
+
+Already after just three shifts, she realized that she was walking with the same trudging resignation that she had seen in the workers in the town on her first day. The old man and her kept with the group for much of the walk back into the town and then broke off to hide in a alleyway between two ramshackle buildings.
+
+They crouched down with their backs to the brick. The old man took a deep, though labored breath, and sighed. "This seems like freedom now," he said. There wasn't a hint of sarcasm in his voice. And she understood why, being in the open, away from the barracks and guards and sirens and radio comms really did feel like freedom, or something approximating it.
