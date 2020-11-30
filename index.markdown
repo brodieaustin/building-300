@@ -1,4 +1,4 @@
----
+predicament---
 layout: base
 ---
 
@@ -1890,3 +1890,42 @@ Together they rummaged around and found a few food items, an old sewing kit, and
 The fires started be stamped out once night time set took completely hold over the day. People began retiring to whatever makeshift shelter they had staked out for themselves. One of the people sitting in the fire circle pointed out to them a blue tarp tied up over a few rumpled blankets. "That one's recently unoccupied if you need something over your heads for sleep. Can't promise it'll be yours tomorrow, but you can have it for now."
 
 The prospect of sleeping with something over their heads was appealing enough, but they did push the rumpled blankets to the side and opted to sleep on the hard ground. "Rather than end up waking up lousy," the old man said. She completely agreed and was content to slip into sleep and forget the outside world.
+
+There was wasn't much time before the next day's shift to find the book stall that that they learned about the night before. But they managed to find the market and the stall. The stall's keeper sat in a low, broken chair and didn't take much interest in what was happening around him. He was more intent on the bowl of hot food he cradled in his hands.
+
+When the old man, asked him about a copy of Hard Times, the stall owner replied, "Don't got a copy of that. You're looking in the wrong place for something like that." He turned his attention back to his food and started slurping at its contents.
+
+"Look, we were told that you had a very special copy of Hard Times. I would really like to see it."
+
+"Some kind of fan are you?"
+
+"I'm just interested in looking it over."
+
+"Please, we just want to take a look at it," she said as well, figuring that their persistence couldn't hurt their case.
+
+The book seller huffed and sat his breakfast down. The hoisted himself up out of his chair and went to the back wall of the stall. He pulled back a fabric covering, like a curtain, that ran along the bottom of the makeshift shelves that held books. He handed the book to the old man, "Make it quick. And remember that book doesn't exist and neither of you have seen it."
+
+They both leaned in to get a better look at it. The book itself seemed fairly thick. The cover felt and smelled like an old book. The corners were ragged and the edges of the pages were discolored and dirty. The old man opened the book in middle and starting thumbing back and forth.
+
+She scanned the dates and commented, "These entries look to be pretty old. When did you grandson leave?"
+
+"I guess about three months before we first met. I'll flip further ahead."
+
+Together they scanned the pages, skimming over short fragments detailing people's loses and longings. Children who desperately wanted to find their parents. A husband longing for his wife. The wife, several pages later, wondering where her husband was. And so on. As she read over them, she marveled at just how many people had passed through this place, how many people had held this book in the same predicament they were in--on the look out for someone, but without any idea where they might be or how to find them.
+
+The old man finally shut the book in frustration and said, "I don't see any thing left by my grandson. Don't see anything like his writing, or anything that even seems like something he would have written.
+
+"Let's leave our own note. Maybe he comes are looks for message from you, but never leaves a message of his own."
+
+The old man was reluctant, though for reasons she couldn't understand. "I suppose it wouldn't hurt." There was an old pen on a chain like you might have seen at a bank long ago. She grabbed up the loose end and handed him the pen. He took a while to decide what to write, but after scribbling out a few words, he snapped the book shut and have it back to the book seller. "We'll be back," the old man told him.
+
+"That's what they all say," the book seller said. "Next time just say you want to pick up where you left off. I don't have such a good memory for faces, and it will save us some time haggling back and forth." They turned to leave, but the book seller called after them, "Aren't you going to buy antying? Typical..." he muttered, now giving his breakfast the full attention it deserved.
+
+The old man seemed deflated after their visit to the book stall. She had to slow down so that she wouldn't outpace him and leave him behind. He even seemed less observant for his shift. In their past few shifts, he had been diligent and engaged with their seemingly mindless and rote task. Their assignment was further down the line this time. They needed to keep up their pace to reach their designated station on time.
+
+Multiple times she had to drag him forward with her. She just couldn't understand why he was so upset and dejected about what they had learned so far. For her part, she was feeling surprising optimistic, more so than she had been in the last few days. They were both more or less free to move about the company town as they wanted to, neither of them were injured, and through some fluke of luck, they even had been posted to job that kept them together. The work was tedious and exhausting, but it was work they could do.
+
+They finally reached their station and began monitoring the pipeworks for any flaws. This section of the pipe must have been in particularly bad shape since it was the most patched up they had seen yet. They walked for several uneventful hours before she started to hear a distinct whining noise. She moved closer to where she thought the sound was coming form. The whining was more a hiss. And it was a steady hiss.
+
+
+She realized that they had actually found their first leak
