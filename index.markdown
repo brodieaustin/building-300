@@ -1,4 +1,4 @@
-predicament---
+---
 layout: base
 ---
 
@@ -1789,7 +1789,7 @@ She sat back in her bed, arms folded tightly across her chest. She couldn't thin
 
 She rolled over on her side, bringing her legs up closer to her chest. She actually started to nod off in the little spare gap of time they were given. She wasn't the only one in the barracks trying to get even a little piece of sleep. The chatter in the died down. People that had learned to grab at sleep amidst waves of terror were used to sleeping when and where they could. These people were no different.
 
-# Chapter 19: Walk the Lines #
+# Chapter 19: Walk the Line #
 
 The people in the barracks began to rustle back to life when a voice shouted out, "Shift starts now. Time to get your assignments." She fell in line behind the old man and shuffled out with the rest of the newly acquired workers. Standing outside, waiting for them was a man wearing a safety hat and glasses, but otherwise dressed normally and a guard. Like the other guards she had seen, this guard looked bored, but seemed pleased enough to be cradling his assault-style rifle in ready-position.
 
@@ -1865,9 +1865,9 @@ Another resident said, "True, true. We all got here one way or another."
 
 "You can say that," said another person, leading to a chorus of chuckles.
 
-"We're also keeping an eye out for my grandson. We got separated a ways back and thought maybe he had headed up here."
+"We're also keeping an eye out for my grandson. We got separated a ways back and thought maybe he had headed up here." The old man reached into an interior coat pocked and pulled out a picture. She was surprised to see it since he had never shown her his grandson's picture before. She caught a quick glimpse before it went around the circle of a young man with a big smile, who had his grandfather's eyes.
 
-One of the older participants in the circle learned forward, an older woman who had a course woven shawl drapped around her neck. "Hard to find folks in the town. You're lucky you haven't gotten separated from your granddaughter too."
+One of the older participants held the picture up close to her eyes, moving it back and forth to bring it into focus. She slipped on a pair of crooked reading glasses to scrutinize it more. She put the glasses back back down and leaned forward, gripping the course woven shawl draped around her neck. "Hard to find folks in the town. You're lucky you haven't gotten separated from your granddaughter too."
 
 "True enough," the old man replied. "Is there anyway to locate people?"
 
@@ -1919,13 +1919,174 @@ The old man finally shut the book in frustration and said, "I don't see any thin
 
 The old man was reluctant, though for reasons she couldn't understand. "I suppose it wouldn't hurt." There was an old pen on a chain like you might have seen at a bank long ago. She grabbed up the loose end and handed him the pen. He took a while to decide what to write, but after scribbling out a few words, he snapped the book shut and have it back to the book seller. "We'll be back," the old man told him.
 
-"That's what they all say," the book seller said. "Next time just say you want to pick up where you left off. I don't have such a good memory for faces, and it will save us some time haggling back and forth." They turned to leave, but the book seller called after them, "Aren't you going to buy antying? Typical..." he muttered, now giving his breakfast the full attention it deserved.
+"That's what they all say," the book seller said. "Next time just say you want to pick up where you left off. I don't have such a good memory for faces, and it will save us some time haggling back and forth." They turned to leave, but the book seller called after them, "Aren't you going to buy anything? Typical..." he muttered, now giving his breakfast the full attention it deserved.
 
 The old man seemed deflated after their visit to the book stall. She had to slow down so that she wouldn't outpace him and leave him behind. He even seemed less observant for his shift. In their past few shifts, he had been diligent and engaged with their seemingly mindless and rote task. Their assignment was further down the line this time. They needed to keep up their pace to reach their designated station on time.
 
 Multiple times she had to drag him forward with her. She just couldn't understand why he was so upset and dejected about what they had learned so far. For her part, she was feeling surprising optimistic, more so than she had been in the last few days. They were both more or less free to move about the company town as they wanted to, neither of them were injured, and through some fluke of luck, they even had been posted to job that kept them together. The work was tedious and exhausting, but it was work they could do.
 
+They finally found a place that would accept their voucher. It was a portion of an old apartment that had been divided up into three pieces. They had to walk through another family's living space to access the semi-functioning bath room. It was always a wild guess whether or not there would be a trickle of running water or not. The only power in the place came from fraying extension cords that had been lobbed over from a nearby building and tacked up here and there, from unit to unit.
+
+Each day they returned to the book stall, asked to pick up where they left off, and scanned the new entries. More desperate pleas, more desperate people hoping to find someone who would make them whole again. Each time they visited, she found it a little harder to look at the people in the streets. These people pressed to the task of keeping the plant running, but incomplete, searching for fragments of themselves, for the footholds to their old lives.
+
+They were getting used to the sights and smells of the company town. They were learning shortcuts and passages to take to avoid the most populated and polluted streets--streets where human and animal sewage mixed freely with whatever waste was made that day. They were able to avoid the crime and violence that could make the company town seem suffocating and small, like there as no harbor from the press of despair.
+
+The guards were sparse in most of the company town. The ones that had to patrol seemed to circle a pretty small path and mostly come to a standstill. They passed their time harassing people that passed by. She watched people being beaten and killed in front of the guards who did nothing to stop this.
+
+The day after something like that happened though a squad of guards, dressed more heavily in armor marched through the town. From what she could tell, they did little more than inflict punishment on people, turning over stalls, beating people, and filling the streets with acrid gasses and smoke. For a brief moment, when the gasses cleared, the streets would be empty and calm. Then life started back up again. People poured back into their unusual routines and life carried on.
+
+And life somehow did carry on like this until one day they visited the book stall to review the new entries on the book. The old man was casually opened the book to an earlier spot and started flipping forward to the present. She noticed something and said, "Wait, stop. Go back a few pages."
+
+He turned the pages back to the day they first visited. There, in the middle of the page, was their original entry, only now it had an X next to it and the words had been crossed out. Next to the entry, in the right column, written in tidy, blocky handwriting was the word, "LOST."
+
+Both of them stood there silently. The old man's finger traced the entry they had written and now had been written over. She turned to the book seller, "What was this mean?"
+
+"What does what mean?" the bookseller asked in the exasperated tone she had come to expect.
+
+"There's an X next to our entry and someone wrote 'Lost'."
+
+"Sometimes people update other people's entries with...relevant details."
+
+"Lost?"
+
+"That's what in olden times people would have called a pejorative. It's a nicer way of saying dead. More specifically it means fell prey to the plant and placed in a mass grave."
+
+The old man dropped the book and staggered back, "No, no. There must be a mistake."
+
+She interceded with the bookseller again, "Is that possible? Could there be a mistake?"
+
+"It's possible. I've never heard of it happening."
+
+"But how would anyone know?"
+
+"I just run the bookstall. I don't concern myself with what happens out there. People know and they come here to write it down. I don't know how they know. I don't know who they are. I don't want to know. I'm already in murky waters just holding the book. And I want to keep them that way. So I kindly ask you to leave the stall and don't come back."
+
+She decided that the bookseller's advice was worth following. She pulled the old man away from the stall. His mutterings and lamentations were largely obscured by the noisy market. He kept walking through, propelled in his haze of grief somewhere, but she wasn't sure where. She kept up with him though, staying close to ensure nothing happened to them.
+
+His seemingly aimless wandering led them back to the camp where they spent their first few nights in the company town. He rushed towards the woman who had told them about the book. "You!" he shouted. The woman reeled back from her spot on a stump. The old man almost overtook her but two other camp residents jumped into restrain him. The old man twisted and turn in a fury against their grip on him. He kept a finger pointed at the woman, "You...You know something. You led us there. Why?"
+
+The woman stood up and sat back down on the stump, dusting herself off in the process. With her composure restored, she waved away the two men holding the old man back. "Sit down and we'll talk about this."
+
+The old man paced a few times before finally sitting down. He rubbed his hands through his hair and hung his head down before cocking it up to look at the woman. "What do you know?"
+
+"Know? I only know a little. I can make guesses. I can piece things together. A lot of information passes through this place and I'm good at connecting dots, following up on things."
+
+"This sounds like mumbo jumbo. What do you know?" was his impatient reply.
+
+"I only know that I recognized the young man in the picture you shared. He had been here a while back. I know that this same young man in that picture said that his grandfather would be meeting him and he didn't want to miss him. I told him about the book, much like I tell many people about the book." The woman stopped talking, leaning back to indicate that the had said her piece.
+
+"And?"
+
+"And what? I have told you what I know."
+
+"But there's more. I'm being told that my grandson is dumped in a mass grave somewhere. How? Where? Who left those marks in the book?"
+
+"I did. Well not me personally, but someone I communicate through. I asked people to ask around. And word came back to me that a kid fitting that description and had been on a cleaning detail in the plant. There was some kind of equipment failure and he fell and died. More people that you might think die that way. I didn't know when you would be back, so I asked someone else to update the entry. It's protocol. It's how we do things."
+
+"Protocol? Is there some comfort in that?"
+
+"I doubt it. But have you seen where we are? It's all some of us have to remember that we were once humans with dreams and desires, not just animals scratching around in a shit heap."
+
+The old man stood up. "I have to see him?"
+
+"Buddy," one of the men who had restrained him interjected, "I'm sorry but if the kid's in a mass grave, there ain't much to see."
+
+"I just need to where. Which one? I have to see for myself."
+
+The man who had just spoken gave a tentative look to the woman. She nodded in agreement of whatever the look had asked of her. "Fine. Jerry here will take you there. But you have to stay close and do everything he says. The company doesn't like people treading their grave sites like a tourist destination."
+
+"We'll leave when it's dark. Fewer guards," the man named Jerry said.
+
+# Chapter 20: Pressure #
+
+Later that night, Jerry gathered them up to head towards the gravesite. The old man had told her earlier that she didn't have to come with him and would understand. Neither of them knew what to expect, but she felt like she couldn't abandon him. Not that her motives were purely selfless. The old man's urgency to find his grandson, his sense of purpose over such a seemingly simple goal, had given her purpose too, maybe even a bit of hope. Without that purpose, everything that had happened in the last few months seemed that much more grim and oppressive.
+
+Jerry guided through the dimly lit town further north and west, away from the lake and the plant. They reached an area with rings of fences. Rolls of barbed wire had been inconsistently stretched across the top, falling into bundle in a few places. Jerry knew exactly where there would be openings in the fence. He would hold back each sniped section to let them pass before slipping through himself and restoring the fence to a natural looking state.
+
+They passed an old playground, which seemed like an odd fixture for a mass graveyard. Jerry seemed to notice that she was studying the playground, and commented, "This used to be a park, a really nice park. I grew up around here and we used to come to this park sometimes. Strange place for a graveyard, but that's how the company works."
+
+She silently agreed that this was a strange place to bury bodies en masse, but it had a strange logic to it to. Or at least the idea wasn't inconsitent with how the people running the plant set things up.
+
+Up ahead, she could make out the hulking shape of a digger, poised over some fresh grave site. They walked towards one area that had been piled up with mounded dirt. Jerry stopped here and said, "If I had to guess, your grandson's probably buried here. They turn over a new gravesite every few months. They go through a lot of people here. Even if the plants don't get them one of us will."
+
+Jerry gave them a ghoulish grin, making her think he was contriving some plan against them. But the grin passed from his face and he simply said, "I'll give you a minute."
+
+The old man tromped up to the top of the mound and walked it's length. He sank down in the middle and sat with his head between his knees. This wasn't the wild lamentations he had exhibited earlier. This was despair and resignation having their way with his emotions.
+
+She saw him take something from a pocket. It looked like a necklace of some kind with a pendant hanging from the end. The pendant caught some of the night's light and sparkled with it turned. He scooped away some of the dirt from the mound and placed the necklace in the hole he made.
+
+She walked up the mound and sat next to him, slightly discomforted by the idea of sitting on this mound of dead people. "Are you okay?" she asked, unsure of what else to say.
+
+"No, but now I can say I took it as far as I could. I didn't break my promise to her."
+
+"Her?"
+
+"My daughter. She died early on in the first waves of disease. She made me promise to look after her son, my grandson. I wasn't the best father, but she asked me, made me promise. I guess I was the best she had."
+
+"Don't say that," she said. "You tried so hard. Look at how hard you fought."
+
+"But it wasn't enough. And I broke my promise to him too. I promised I would come find him here and we could try to have a better life. Can you believe that? He really believed the stories about this place. Look at us know..."
+
+"You couldn't have stopped him. Look at all of these people. They all believed. But they didn't know."
+
+"I guess. It doesn't matter now. I've lost everything now. I don't even know..." The old man just trailed off without finishing. He stood up all of a sudden and walked back down the mound. Jerry was waiting for them, perched on the edge of a battered picnic table. "Sorry, old man. This is tough shit."
+
+"Yeah," the old man muttered, letting the word hang as they made their way back to the town.
+
+They spent the rest of the night in the camp instead of returning to their little section of the apartment. There wasn't a place for them to stay like there had before, but Jerry gave them some spare plastic he had and helped them drape it over a broken piece of a storefront awning that had been pitched away and left behind.
+
+The next morning they returned to their apartment to get their work gear and reported for their shift. She noticed that the old man seemed more agitated and shiftless than she was used to. He had nearly shoved someone aside who was walking slowly ahead of them. He started shouting for the crowd to hurry up as the workers created a backflow to pile in to the plant. A few rough faced workers turned to stare him down and he got quieter. She could tell the feeling was still there though.
+
 They finally reached their station and began monitoring the pipeworks for any flaws. This section of the pipe must have been in particularly bad shape since it was the most patched up they had seen yet. They walked for several uneventful hours before she started to hear a distinct whining noise. She moved closer to where she thought the sound was coming form. The whining was more a hiss. And it was a steady hiss.
 
+She realized that they had actually found their first leak. Someone had welded a metal sleeve around a junction point between two sections of pipe. They examined the sleeve, really nothing more than a thin sheet of metal. It was rusting at the joints and leaking there. Patches of the sleeve were starting to rust through as well. "Water must have gotten in between the pipes and this sleeve. It's a mess now," the old man said.
 
-She realized that they had actually found their first leak
+"I'll radio it in," she said, falling back on what your presumed jobs were supposed to be.
+
+"No, wait, maybe this is an opportunity."
+
+"An opportunity to do what?" she asked.
+
+"Look at this place. This isn't any way for people to be living."
+
+"But they're living."
+
+"No, they're dying, just like my grandson tied. Maybe I can do something about it now."
+
+"What do you mean? I don't understand." He reached back and took out the pistol. "What are you going to do with that?"
+
+"Make an opportunity," he said and started to hit the weak points of the pipe with the pistol butt.
+
+She tried to lunge for the gun and stop him, but he pushed her back with a firm shove. She fell to the ground. All she could do was watch as he pounded away at the pipes. As he did, more and more water started to leak, the whining sound started to sound like a howl. A voice come over the radio, "Uh central, this is unit 14, we're hearing some kind of strange noise."
+
+"What kidn of strange noise Unit 14?"
+
+"A banging noise? We're not really sure. We think it's coming section Y-6."
+
+"Then why don't you go an investigate the sound, Unit 14?"
+
+"And leave our stations?"
+
+"Yes, leave your stations."
+
+"Oh, okay, affirmative. The sound is getting louder."
+
+"Central, this is unit 5, we're hearing the sound too. Also starting to hear a weird knocking sound as well."
+
+She stood up and looked at the old man, maybe for the last time, "I don't know why you're doing it, but you're not going to stop are you?"
+
+He looked at her with a maniac gleam in his eyes, "No, and I suggest you get as far from here as you can."
+
+"But what about all the people, what about your self."
+
+"We're already dead. Our names might as well be scratched out in that book already. We don't matter. But this will matter to them."
+
+There was no arguing with him. She could hear one fo the other teams approached down the opposite side of the tunnel. This might be her only chance to escape. She felt a wave of sorrow for the old man, but she wasn't ready to sacrifice herself to make the statement he felt compelled to make.
+
+She turned, without saying anything, and started to run. She ran past the clanging loud pipes, bumped into another crew who tried to stop her and said, "Hey do you know what's going on?"
+
+More and more radio chattered echoed in the tunnels and more people were reporting anomalies. She reached the main junction room and raced up the stairs and out the door. Even from above ground, she would hear the pipes exploding and cries. Alarms started to whine overhead. Guards and other plant employees started racing towards the junction house.
+
+In all of the chaos, she was able to slip away unnoticed. She kept running through the streets. She didn't feel the same kind oppressive grief she had when the old man made her escape the restaurant. She didn't feel like she had turned her back on him and now had to recover from the loss. Instead, the faster she ran, the more she started to feel free. Free to follow some other path that would take her to a place where she really could start over.
+
+The company town hadn't crushed the potential for this happen. She believed that maybe, she could find solace somewhere. She wished that the old man had been able to find his peace, but without his grandson, he was surely to feel nothing but loss for the rest of his days.
