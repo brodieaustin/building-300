@@ -4,13 +4,15 @@ layout: base
 
 # Chapter 1: The Building #
 
-No road or path led her to Building 300. There were no roads and no paths then, just the broken, faded outlines of them. Just her feet tromping through the brush, the weedy grasses and plants like brushes that only painted brown. Even now, huddled in Building 300 she could hear the crunch and pad of her steps, so many steps that took her from here to there.
+No road or path led her to Building 300. There were no roads and no paths then, just the broken, faded outlines of them. Just her feet tromping through the brush, the weedy grasses and plants like brushes tipped in brown. Even now, huddled in Building 300 she could hear the crunch and pad of her steps, so many steps that took her from there to here.
 
-It wasn't worth remembering what here had been. There was no here there anymore. No one had here to recall. She certainly didn't. Here wasn't something to wrap herself up in to keep warm now that night was stalking day with its dark and cold. There was here now. And here was Building 300.
+It wasn't worth remembering what "there" had been. There had only been a place to leave, to skirt away from. Here escape was more of a wondering than a breakout. So many people around her wandered in and out. More so when the weather turned cold again. Like it was now.
+
+There was no there there anymore. No one had there to recall, only the here of wherever they found themselves. She certainly didn't. There wasn't something to wrap herself up in to keep warm now that night was stalking day with its dark and cold. There was here now. And here was Building 300.
 
 The waves outside the building never lapped, only roared. They roared from far away; they roared from up close. The roar was always the same. A long inhale and a ferocious exhale as water swept up over sand, rocks, metal, and debris. She could hear the waves now, getting closer, seemingly pulling the land down into its depths. Soon, the water would  swallow up her footpaths. The close ones to the water that made foraging for food a little easier.
 
-She shivered as the newly cold air crept in through the buildings large metallic grate. She was too tired to do much about it. But tomorrow, that would be her project. So she crouched in the far corner of the low rectangular building and pressed her body close to the concrete walls that still emanated whatever heat those thick walls had absorbed from whatever pittance of sunshine was left outside.
+She shivered as the cold winter air crept in through the buildings large metallic grate. She was too tired to do much about it. But tomorrow, that would be her project. So she crouched in the far corner of the low rectangular building and pressed her body close to the concrete walls that still emanated whatever heat those thick walls had absorbed from whatever pittance of sunshine was left outside.
 
 The next morning, she woke with a chill damp feeling all over her, yet her body strangely burning and hot. Everything was odd contrasts now. Restlessness that wouldn't give way to fatigue; fever spells that left her freezing. The world emptied of everything and yet full of threat.
 
@@ -2090,3 +2092,9 @@ More and more radio chattered echoed in the tunnels and more people were reporti
 In all of the chaos, she was able to slip away unnoticed. She kept running through the streets. She didn't feel the same kind oppressive grief she had when the old man made her escape the restaurant. She didn't feel like she had turned her back on him and now had to recover from the loss. Instead, the faster she ran, the more she started to feel free. Free to follow some other path that would take her to a place where she really could start over.
 
 The company town hadn't crushed the potential for this happen. She believed that maybe, she could find solace somewhere. She wished that the old man had been able to find his peace, but without his grandson, he was surely to feel nothing but loss for the rest of his days.
+
+Ch 21. The House
+
+There were so many broken lanes of road to pick and walk down. She chose one that seemed to veer back south and to the west. What started as a series of breathless brisk steps, eventually slowed to a plodding pace.
+
+She was walking through the remnants of neighborhoods with small houses. Each house had once had people inside. She had once been inside a house like that too. With a family, with people. But no one could live inside those houses now. It seemed like every other house had a collapsed roof, was burned out from a campfire that spread wild in the middle of the night.
