@@ -2098,3 +2098,192 @@ Ch 21. The House
 There were so many broken lanes of road to pick and walk down. She chose one that seemed to veer back south and to the west. What started as a series of breathless brisk steps, eventually slowed to a plodding pace.
 
 She was walking through the remnants of neighborhoods with small houses. Each house had once had people inside. She had once been inside a house like that too. With a family, with people. But no one could live inside those houses now. It seemed like every other house had a collapsed roof, was burned out from a campfire that spread wild in the middle of the night.
+
+The houses then blurred into parking lots and large abandoned stores. The road she walked down widened with more lanes. Up ahead, traffic lights lay scattered around the ground with clumps of brown grass shooting up around them.
+
+The wind was cutting through her out here. She could feel a heavy damp in the air and knew that more snow was coming. She wasn't prepared for a storm, but she trudged on anyway.
+
+She crossed over an ever wider road with rusting highway marker on it, then walked up an embankment to railroad tracks. Rusty electrical tower stretched in either direction as far as she could see, with an old paved walking trail running alongside them.
+
+At some point, in a different life, people would have biked and ran along these trails, finding pleasure in the open air. She took no pleasure in turning into the cold headwinds and forcing her way south.
+
+As it grew dark, she decided to turn off the path and into one of the dots of houses that peered up above the treeline. She found herself walking down a gently curving street, past enormous houses that staked out large swaths of ground. Even these monuments to wealth and comfort undone by desperate people looking to survive, many havign been hacked apart, burned, content spilled out by looters and scavengers.  
+
+She decided that it would be better to shelter over night somewhere further from the trails and kept walking further into the core of this genteel landscape. She finally fixated on a large house that still seemed to be in good shape. The roof wasn't cratered with holes. The walls were still standing, and no side of the house was sagging and about to collapse. She had heard enough stories of people who had holed up in empty houses and building only to wake up suffocated under rubble.
+
+The house's solidity appealed to her. And since the area around the yard had not been completely trashed, there was a chance there might be supplies and furniture still intact inside.
+
+She approahced the house cautiously, step by step. Her eyes raced over the corners and windows of the house, along the roof lines, for any signs of movement. She approached the front door and looked it over carefully. There were no obvious signs of it having been forced oopen, or obviously rigged with traps.
+
+The door was swollen shut and didn't budge right away. She had to lean into it and hold her breath through the long low squeal it made as she opened it. Even in the dull afternoon grey light, the house's entryway was huge. A staircase rose to second floor with an overlook. Rooms on either side were filled with expanses of plush carpet, puffy furniture, and rich jewel toned walls.
+
+She padded through the entryway, peering cautiously around her. She couldn't believe that this place was abandoned--it was so orderly and tidy. The normal signs of existence were no where to be seen. She made her way to the kitchen, passing through doorways with impossibly thick and tall doors. In the kitchen, cabinets seemed to race in every direction, at all heights.
+
+Despite the untouched state of this house, once she was in the kitchen, she could detect the recongizable smell of decay. She had never once scavenged a house where the after effects of rot did not linger in the air. So, she stayed away from the refridgerator, two large paneled doors, where the smell was the strongest.
+
+She found the panty and a smattering of canned goods. She squated in the pantry and opened an old can of fruit cocktail. Even at room temperature, the sugary trickle of syrup felt cool and refreshing. She picked her way through the fruit, piece by piece, chewing over each texture, relishing in the sensory experience.
+
+Her body released tension without her even thinking about it. Her head fall back against the panty wall, her shoulder slumped, and she stared off into the kitchen. Her eyes followed the lines of the cabinets, tracking the details of the wood grain. She couldn't help but see anguished faces that dissolved into the chaotic swirl that was nothing but wood, of tree growth.
+
+As she sat and the sun set, she started to notice the cold in the building. Her breath was coming in clouds now. She needed to find somewhere warmer to sleep over the night. Lifting herself up, she went upstairs to find some small space to huddle in and pass out.
+
+At the top of the stairs, she immediately ran right into a set of doors that had been sealed shut with plastic sheet and tape. She knew what lay behind those door--some grim death scene that someone else before her discovered and contained. Off to the left seemed to be the remains of a kids room and a nursery. Even still, she didn't want to be surrounded by reminders of some family's failed dreams to thrive. Instead, to the left, was a room that had been used as a library and office.
+
+One side of the room was lined with bookcases and books. The ceiling was damaged in one place and some of the books had swollen and gone brown. On the other side, a swivel chair was turned away from a desk with a computer and papers strewn around it. She sat in the desk and twirled a few times. She shuffled through the papers, but there were only bills and flyers for home repair services.
+
+The closet doors folded and slid out on tracks. She opened them to find a tall filing cabinet on one side, and old, slighly musty smelling men's clothes on the other. This would do. She crouched down in the bottom of the closet, slipping off her shoes to let them dry out from the wet that had seeped in to them. She reached up and pulled down shirts and pants and jackets at random on top of her. A few of the hanger clattered and swung back and forth on the bar. Now covered up to the point of being unnoticable, she slid the door shut and feel asleep.
+
+Clattering sounds in the kitchen woke her up with a start. Animals, she thought. Probably animals. Her body wanted to collapse back into sleep. But even animals could be a problem. She roused herself up from the pile of clothing, letting what little heat the heap had capture dissipate into the frosty feeling night air.
+
+She drew the gun from her waistband and held it awkwardly with both hands far out in front of her. As she crept downstairs, she slowly thumbed back the hammer. Her finger anxiously tapped the side of the trigger. She hoped she wouldn't have to use the gun on anything or anyone.
+
+She darted from the stairs into the dining room and crouched down behind the uneven row of thickly padded chairs around the dining room table. They provided cover as she approached the kitchen. She sliced over to the doorframe and peered around into the kitchen.
+
+A man and woman were standing in middle of the kitchen, silent, but looking around wildly to see if there disturbance would rustle any trouble. She wasn't sure if she was going to be their trouble or not. She studied them quickly, assessing them the way so many people had learned to do, as she had herself. They were dressed in ragged coats and like her. The man wore a frayed wool cap pulled down low to his eye brows. the woman had a hooded sweatshirt tightened around her head.
+
+As the moments passed, they let their tension go and started bickering in whispers. "I told you not to touch anything..." the woman said.
+
+The man hissed back, "I was looking for food, which was your idea, remember..."
+
+"It doesn't...it doesn't matter. Just keep looking then let's get out of here." The woman started to move toward the panty, which was more in view of the dining room. She could hear the woman mutteringn to herself, "Why did I agree to leave with him. Nothing goes right. This was a mistake."
+
+She decided to make her presence known, and stepped out into the kitchen with the gun raised. The woman say her first, and jumped back, "Oh Jesus."
+
+The man started to dash towards the woman, but she cut them off, "Stay there."
+
+The man raised his hands like he was being robbed, "Don't shoot us, please. We don't know anything. We didn't see anything okay."
+
+The woman looked at her, nervous too, but less cartoonishly scared, "We don't have anything valuable." She started to unbuckle a waist pack, "You can look yourself."
+
+"I don't want your stuff. Just tell me who you are."
+
+They looked at each other. The woman gave the man a look. He fell quiet. She was the designated speaker, "We're nobody. We're just passing through."
+
+"You must be somebody."
+
+"Just nobodies."
+
+"Where are you going?"
+
+"North..."
+
+"Where north?"
+
+The man couldn't contain himself anymore, "We heard about settlements to north, if you just follow the train tracks. We saw a map. I saw it and we're heading there. I have a photographic memory."
+
+The woman shook her head, "And that's about all that impressive about him," she said under her breath.
+
+She didn't want to get in the middle of arguments, she was too tired and wanted to go back to sleep.
+
+"Were you followed here?"
+
+The woman chimed in, "No."
+
+"Why did you come in this house?"
+
+The man looked at her directly and replied, "We saw your tracks in the snow and though maybe someone had settled here."
+
+Fatigue overwhelmed her at this point. These two hadn't been careful enough not to make a racket so she lowered the gun. "Fine," she said. "I'm going back to sleep. Find somewhere for the night. I'm leaving in the morning."
+
+"Where are you going?" the woman asked her, as if desperate for some revelation of hope.
+
+"South and west. And then we'll see."
+
+"So, you came from the north?" the man asked.
+
+She hesitated, "Yes."
+
+"And..." the woman asked, cycling her hands to draw out more information.
+
+"And...I wouldn't head any more eastward, would be my advice."
+
+"What's up there?"
+
+"Tragedy."
+
+The woman shifted her weight, "That's not helpful. That's everywhere."
+
+"Well this was a special kind of tragedy and I wouldn't recommend going any further east." The man and woman were quiet.
+
+The man spoke up, "We came from the directions you're heading too." The woman shot him a stern look and he got quiet.
+
+They stared at each other in the dark kitchen, until she finally said, "Well, good night." She went back up to the closet and tried to get warm enough to fall back asleep.
+
+
+She woke up to more clattering and cooking smells wafting from downstairs. These people did not seem to know how to disappear and she wondered how they were even still alive at this point. She crawled out from the closet and gathered her things. Before leaving, she grabbed a particularly thick green button up shirt from the pile of clothes and shoved it into her backpack. It never hurt to have a few extra layers available.
+
+Downstairs the man was hovering over a camping stove and a skillet. He looked up at her and smiled. His smile unsettled her. Not in the way that manic evil smiles did. Those barely registered with her anymore. Not in the way that absent, blank smiled did either. She had lived with those too. His smile was perfectly normal and natural, an actual expression of joy in the empty guts of an abandoned house in the midst of a world gone completely upside down. And that was something she was completely unused to seeing.
+
+"I found canned meat in the pantry. Everyone leaves behind canned meat," he said in the same upbeat tone of voice that his smile conveyed.
+
+"And..." she crept closer to the skillet. "Eggs?" She couldn't remember the last time she saw a fresh egg.
+
+"It was my job," the man replied. "I tended the chickens."
+
+"Your job? Where?"
+
+"In the garden. Where we were before. Where we left."
+
+"More like exiled," the woman interjected, walking into the kitchen. "You stole eggs? I can't believe it."
+
+"I thought we might need them. We were leaving anyway. And I kept Maribelle alive all winter."
+
+"Even after she told you to slaughter her."
+
+"Well she doesn't always know best. Maribelle was special."
+
+"She's probably not special anymore."
+
+The man looked defeated by this comment. She was having trouble following them and merely said, "I can't believe you had chickens and eggs."
+
+"She was deteremined to restore order," the man replied.
+
+"Who?"
+
+The woman jumped back in, "The Sovereign. She oversees the place the left. She makes all of the decisions and made sure everything ran according to her plan."
+
+"But you left?"
+
+"No, we were forced to leave. Exiled. Well, he was, and I foolishly decided to come with him. It wouldn't have taken long for her to set her sights on me."
+
+"Sounds like an interesting place."
+
+"Well it had its advantages..." the woman turned her attention to the stove, "Since we have eggs, don't let them burn."
+
+"Oh," the man fumbled with the skillet, burnning his hand in the process of transfering it to the other burner, then started to plate the food.
+
+"I'll take the plates, go cool your hand down in the snow." The woman sat the plates down at the table that had been knocked askew in the small space off of the kitchen.
+
+She sat at the table with the woman, but waited for the man return, "Go ahead and start eating," the woman said. "It might be a while before he's back."
+
+"Is he okay?"
+
+"Him? Probably not, but he means well. He seems to have a knack for twisting any situation into chaos. Drove the Sovereign crazy. She couldn't stand him, but he knew how to tend the chickens and no one else could get them to produce as many eggs. Look if you're heading south, just try to avoid that place, okay?"
+
+She wasn't sure how she would avoid or not avoid a place ruled by someone called the Soverign, so she weakly replied, ""I'll try."
+
+The man came back in, wiping his wet hand on his pants. "All better. How's the food?"
+
+Looking down, she realized that she had almost cleared her plate, "It was really good. I could hardly remember what fresh eggs tasted like."
+
+"Their a good source of protein," he said. "Really good for you. Here..." he reached into backpack, "Here you go," he said, coming over to the table with two eggs in his hand.
+
+He set the eggs down on the table next to her. One started to roll off, but she caught it and set it back down. "Thank you," she said. "You don't have to..."
+
+"I insist. It's for not shooting us last night," he said.
+
+"Fair enough." She didn't know what exactly she was going to do with two eggs. She stood up and rumaged in the kitchen drawer for a towel. She wrapped the eggs up and nestled them down into her pack. She slung the pack on her back.
+
+"Leaving?" the woman said.
+
+She nodded in reply. "Think so. You?"
+
+The man and woman both looked around. The woman replied, "Maybe we'll stay here a bit longer. Rest up and decide what's next."
+
+"Be nice if the snow cleared," the man said.
+
+"Don't stay in one place too long," she replied. They both nodded in reply.
+
+She walked toward the front door, turning to them as she left the kitchen, "I hope you find what your looking for. Good luck."
+
+"You too," they both replied. She walked outside into the crisp morning air. She oriented herself to rub of sun in the cloud cover and started off down the winding road that would take her out of the neighborhood.
