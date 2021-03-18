@@ -2093,7 +2093,7 @@ In all of the chaos, she was able to slip away unnoticed. She kept running throu
 
 The company town hadn't crushed the potential for this happen. She believed that maybe, she could find solace somewhere. She wished that the old man had been able to find his peace, but without his grandson, he was surely to feel nothing but loss for the rest of his days.
 
-Ch 21. The House
+# Ch 21. The House #
 
 There were so many broken lanes of road to pick and walk down. She chose one that seemed to veer back south and to the west. What started as a series of breathless brisk steps, eventually slowed to a plodding pace.
 
@@ -2287,3 +2287,13 @@ The man and woman both looked around. The woman replied, "Maybe we'll stay here 
 She walked toward the front door, turning to them as she left the kitchen, "I hope you find what your looking for. Good luck."
 
 "You too," they both replied. She walked outside into the crisp morning air. She oriented herself to rub of sun in the cloud cover and started off down the winding road that would take her out of the neighborhood.
+
+# Chapter 22: Boxes #
+
+The neighborhood wound its way to a clearing then a wall of trees. Winer wind ripped around her and she started to shiver. Even with the heavy shirt draped around her, the wind was too much. She would have to take refuge in the woods.
+
+Off to the right a foot path jogged through the grasses and into the woods. She took up the trail and started following it in the forest. The threes did dampen the wind but overhead the trees shook back and forth furiously. They created a stream of shaking and creaking noises, like a flood of sound all around her. She worried that the trees were drowning out other noises around her, but kept on down the path.
+
+She stopped at a point where another dirt path bisected the paved one. The dirt path veered off into the trees and disappeared. Her first instinct was to ignore this other path, but something glinting in the trees caught her eyes so she turned off to see what it was.
+
+As she got closer to the glint, she realized that there was something attached to the tree trunk, about shoulder height. That something was a wooden box decorated with broken pieces of mirror that had been glued all around the outside. Inside the box, three rows of doll masks were lined up staring out blankly at her.
