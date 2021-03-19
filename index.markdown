@@ -2296,4 +2296,34 @@ Off to the right a foot path jogged through the grasses and into the woods. She 
 
 She stopped at a point where another dirt path bisected the paved one. The dirt path veered off into the trees and disappeared. Her first instinct was to ignore this other path, but something glinting in the trees caught her eyes so she turned off to see what it was.
 
-As she got closer to the glint, she realized that there was something attached to the tree trunk, about shoulder height. That something was a wooden box decorated with broken pieces of mirror that had been glued all around the outside. Inside the box, three rows of doll masks were lined up staring out blankly at her.
+As she got closer to the glint, she realized that there was something attached to the tree trunk, about shoulder height. That something was a wooden box decorated with broken pieces of mirror that had been glued all around the outside. Inside the box, three rows of doll masks, each suspended above a shelf, were lined up staring out at her. Pasted in the background behind each row of faces were a hodge podge of landscapes, animals, and words.
+
+The dolls all had the same pink smirk, but one had fallen on its shelf. She reached into pickup it up. She turned over and instead of a having a delicate, cracking face like the others, the entire face had been covered with paper cutouts of word "Hope." She played her finger over the tack where the face had hung. The tack was loose and wobbled in place. She pushed hard on it to dig it further into the wood bac.
+
+With the tack more firmly secured, she placed the face back on the tack. Stepping back onto the path, she studied the faces now that the set was complete. The face with hope plastered on it was more conspicuously different from the others. The pasted on words obscured the face's features. The face seemd to be bandaged up, under a mask of a hundred scraps of paper.
+
+She walked further down the trail and found another box mounted to a tree in the same way. This box had been painted black with splatters of white paint on it to look like stars. The bottom of the box was covered in sand that had been glued down. A tiny figure of a man in a bulky suit and helmet stood in the middle of the sand. A cutout of the Earth loomed in the shallow distance of the box. Floating in the sky above earth, someone had pasted words, "Don't forget to look up."
+
+The last box she found was painted in faded gold and torquise and brown. Strange shapes were drawn on the outsides. The box's inside was split into three compartments. One one compartment was a wooden hand with a eyeball painting on the palm. Another compartment contained a pyramid that had been covered in scribbles. Attached in the largest compartment was a long slender rusting knife. Maybe it was a dagger or an old hunting knife. In either case, she couldn't resist reaching in yanking on the knife until it came free.
+
+She kneeled down to bury the knife down in her backpack when she heard a patter then crash of feet coming towards her. She darted behind the tree with the box and drew the gun, pointing it down the path. She tried to keep her heart from racing from fear, but also felt like she had let her guard down and felt angry with herself because of it.
+
+The person on the trail was close now. She readied herself to engage. She could hear heavy breathing, but ragged, irregular breathing. Weak breathing. But she wouldnt' take a chance. She lunged out from behind the tree and threw her weigt into the person to knock them down. She regained her footing and bore down on them with the gun.
+
+"Oh my god, I'm sorry," she said, as she realized who was on the ground, stunned, rolling side to side, and crying. "I'm so sorry. I didn't know it was you." She reached down the help the woman from the large house sit up. "Are you okay?"
+
+The woman looked overcome with despair, "No...I'm not."
+
+"What's wrong? What's going on?"
+
+"He's..." she started to sob again. "He's dead."
+
+"Dead, how? Did he...did he..."
+
+"No, he wouldn't do that. He couldn't. You say him. He saw good in everything. Even me." She started to cry again.
+
+"It's okay. It's okay." she kept repeating, not knowing why, not knowing what else to say. She sat next to the woman, silently, for a few minutes. She became aware of her surroundings again, the trees picked up their windy rustling. She couldn't take it for granted that the woman hadn't been seen, wasn't being followed. They could walk and grieve in silence, as well as sitting here on a snowy trail.
+
+"Come on," she said to the woman, digging a free hand out from under the woman's arm pit. "We have to keep moving, okay? We can't just sit here." Somehow she managed to get the woman to her feet, standing, then walking.
+
+The trail came to an end up ahead. She could see that it intersected another trail and then seemed to be a few old building. Maybe a parking lot. One of the last trees on this trail had a faded sign affixed to it reading, "Enter the Hope Trail here." They stepped onto the paved trail and let that sign get smaller with each step they took.
