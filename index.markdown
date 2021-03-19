@@ -2327,3 +2327,61 @@ The woman looked overcome with despair, "No...I'm not."
 "Come on," she said to the woman, digging a free hand out from under the woman's arm pit. "We have to keep moving, okay? We can't just sit here." Somehow she managed to get the woman to her feet, standing, then walking.
 
 The trail came to an end up ahead. She could see that it intersected another trail and then seemed to be a few old building. Maybe a parking lot. One of the last trees on this trail had a faded sign affixed to it reading, "Enter the Hope Trail here." They stepped onto the paved trail and let that sign get smaller with each step they took.
+
+As they rounded the corner of one of the squat dark brick buildings that led into the forest, they heard voices coming from the parking lot. "Get down," she told the woman and peered around the corner to assess the scene. There were several abandoned cars in the parking lot. One man was feeding tubing into the gas tank of one. The other people--a man and a woman--were scrounging in the other cars and prying open the gas tanks.
+
+She scanned over to the parking lot entrance were a large truck was idling. There seemed be another person in the truck, in the driver's seat. The truck had been modified with metal plates, a tubes of metal welded to the front. It was made to look angry and aggressive. She could only assume that the truck's demeanor matched the people's who rode in it.
+
+This scene looked bad, but looked even worse when she spotted another person, a woman patrolling with a rifle cradled in her hands. This added a new layer to the scene. As she watched more, she focused in on the tension in the three people she originally spotted. The man pulling gas, in particular, seemed weary and scared. When he looked up to wipe his face, she noticed that he was covered in cuts and bruises.
+
+"We don't want to mess with these people," she told the woman, who nodded in compliance. "Slavers," she added. She took a deep breath and kept her self pressed even closer to the wall. She did not want to get swiped up by people like this.
+
+"We need to get out of site." They kept at a crouch and circled to the back of the brick building. The back door was unlocked and they snuck inside. They found themselves in a room littered with recreation gear. Skis and snowshoes. Life jackets and paddles. With no where to hide here, they scooted down a short hallway. A mens and women's restroom were on one side of the hall. Two door on the other. One door was locked. The unlocked one led into a small office with a window looking out into the building front area.
+
+"Under the desk, come on," she said to the woman, tugging on her arm. They huddled under the metal and fake wood desk to wait for the group outside to leave. She kept track of their presence by the faint rumbling of the truck. Crowded in the dark like they were, the group felt far away and unlikely to capture them.
+
+Her heart, which was already racing, dropped when she heard a bell tinkle as the front door the building open. She overheard a gruff female voice order someone to "look around for anything useful. And no pocketing anything like last time. He'll get it even worse if I find you sneaking anything." A soft whisper replied, "Okay." The door shut again.
+
+She turned to the woman, "One of them is inside. Stay quiet. Hopefully they don't find us." The sound of opening doors and drawers muted the sound of the truck. She could only focus on the sounds inside the building now.
+
+The sounds stopped momentarily, then a door opened, closer to them this time. But a swinging sound. Probably one of the restroom doors. She could hear the sound of piss bouncing around an empty toilet bowl. The door swung again. Then the scrape of feet and breathing sounds was all she could hear. The woman was in the room with them. She could see shadows from the woman's feet being cast by the office window.
+
+The woman walked around the far side of the desk. Metal drawers opening. One. Two. Three. Four. She could some rustling then the woman muttered, "Shit, nothing." She could hear pacing feet on the carpet then a bang as the woman sat on the desk. The woman with her flinched and banged her elbow into the desk at the loud sound. "What the hell?" the other woman said. She crept around the desk and peered down at you.
+
+The woman's eyes grew large with either fear and anxiety. She started to stand up, but she grabbed her arm and pulled her down. "Please," she hissed to the woman. "Please, we just want to get out of here."
+
+The woman looked them over, "What's wrong with her?"
+
+"She's fine..."
+
+"She's not fine. She's been crying."
+
+"She lost someone, someone important to her." As if responding to the other woman's skeptical look, she added, "I swear. We're just trying to head south. That's it."
+
+"If they find you and know that I saw you...well I don't even want to think what they'll do."
+
+"They won't find us. I swear."
+
+"I don't know..."
+
+"You haven't found anything right. What if I give you something?"
+
+"Like what?"
+
+"I've got food. Canned food. Some wrappers of crackers. They're stale but still good." The door bell tinkled again. "Hey you in here. You better not be up to anything."
+
+"Shit it's her."
+
+"Stall her and let me get the stuff."
+
+The woman stood up, "I'm here, looking through this office."
+
+"Hurry it up. Bring whatever you find to the truck."
+
+"Okay, I will." She kneeled back down. "So let me see it."
+
+She pulled out the items as promised from her pack and handed them over. "Say you found them stashed in the desk."
+
+"Sure, seems likely enough." The woman stood and started to leave.
+
+She peered out from the desk, "Thank you." The woman just shrugged, gripped the items she had been tasked to find and went to return to the truck.
