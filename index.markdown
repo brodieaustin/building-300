@@ -2385,3 +2385,73 @@ She pulled out the items as promised from her pack and handed them over. "Say yo
 "Sure, seems likely enough." The woman stood and started to leave.
 
 She peered out from the desk, "Thank you." The woman just shrugged, gripped the items she had been tasked to find and went to return to the truck.
+
+She pressed back under the desk and listened closely. She could hear the clang and clink of things being put back in the truck bed, then the engine roared to life and the large tired crunched away on the pavement.
+
+"Come on," she told the woman. "Let's clear out. These abandoned cars will keep attracting attention."
+
+They walked out and circled around the front counter where people used to meet and greet people, rent out that equipment in the back. A wobbly tall spinning chair stood at arms length from the counter now, the only evidence of the people who uesd to do that job. The woman walked to a glass case to one side of the front area and was bent over studying something.
+
+She watched as the woman traced her finger over the glass. She walked over to see what she was doing. A map was displayed under the glass. A red push pin had been inserted on the map where they currently were.
+
+"What are you looking for."
+
+"Just trying to figure out where we are."
+
+"Did you figure it out?"
+
+"Yes. We're here. I think we should keep following this road here. It's easy to slip out of sight when we need to."
+
+"Where will it take us?"
+
+The woman answered vaguely, "I'm not sure. We'll see."
+
+# Chapter 22: The Village #
+
+They followed the straight lines of the roads that the woman had charted out. Once they left the park building, the woman seemed to step out of the distracted, sad daze she was in and walked with determination and purpose.
+
+She wasn't sure where they were heading, but she let the woman lead anyway. The woman had some destination in mind, and it was better wandering endlessly in the thicket of houses, buildings, and streets. Who could say what cult or conspiracy-monger had built some outpost in a hollowed out shopping mall to terrorize the land.
+
+The woman had a keen sense of dangers and when to hide. She frequently pulled them out of side, into house's sideyard, or behind some utility building. Each time they crouched and hid, she felt that she would see the corners or tops of a white van, like the one that had rescued her. But she never could be sure and, no matter what, they always seemed to be out of full view when these glimpses materialized in the distance.
+
+They reached another stretch of forest after crossing over several railroad tracks. She still led them through the dense underbrush, seemingly able to pick out a passable path as they went.
+
+At the center of the forest, they passed an area that must have been cleared out at some point, though the brush and grasses had started to reclaim it. The ground underfoot had been scorched at some point and there were remains of burnt logs, some in large piles. The woman didn't comment on them, so she was left to imagine what this area had been.
+
+After leaving the forest, they crossed over another large road and were back in the middle of a neighborhood. Many of the streets had been blocked off with old cars, which must have been these people's attempt to keep chaos at bay for a little while. She realized, though, after a few minutes, that the blocked roads were steering them in a specific direction. She wondered what they were steering them towards.
+
+They left the neighborhood and found themselves walking along the backside of a shopping market. Large dumpsters had been overturned, old tatters of boxes and bins were strewn about. The door to the grocery store's loading dock had been blown open at some point. Cars were overturned in the parking lot. A shopping basket of explosives must have crashed into a large truck since the two were still warped into each other.
+
+These scenes weren't unusual. She had passed through areas like this that had devolved into chaos as people went to war with each other for survival. She wasn't stunned by them, but she took them in nonetheless. You never knew what surprises might be in lurking in these places.
+
+As they stepped on to small winding street, she pointed to a large object that rose above the treeline and square buildings with broken glass. "What's that?" she asked the woman.
+
+The woman answered casually, "A water tower."
+
+"What's it for?"
+
+"Holding water. Let's keep moving."
+
+The street curved around another empty shopping area and began to gently slope downwards. She was so transfixed by the large, light blue water tower, that she didn't notice that the road was starting to slope down to an underpass. The street ran beneath what must have been an old railroad bridge. A Train had derailed at some point, leaving a swoop of railcars crashed across the road.
+
+"That's where we're going," the woman told her. "Just stay quiet and let me talk."
+
+Gates had been gut into the old railcars. Up above, the bridge deck has been fortified and guards patrolled the bridge. Even as the afternoon sun shined behind them, she could tell that the guards were armed with long guns.
+
+When they were about forty or fifty feet from the bride, a stern voice called out, "Stop where you are. You are entering the sovereign territory of the village and will not be allowed to continue. Turn around or face the consequences."
+
+"Sovereign what?" she muttered to the woman.
+
+"Please, be quiet," the woman hissed. "Please tell her excellency, the exalted Sovereign, whose decision and wisdom are unquestionable and infinitely wise, that two travelers request harbor and passage."
+
+"Helena? Is that you?"
+
+The woman, whose name may or may not have been Helena, stepped forward with her hand shielding her eyes. "Cliff, is that you?"
+
+Someone stepped forward to the man speaking. Their silhouettes had a dialog. He shouted back, "You may approach the gate...alone. Keep your hands up. I will be down."
+
+As the woman, Helena started to walk away, she grabbed her arm and said, "You know this place? What's going on?"
+
+"Yes, but I don't have time to explain." As she walked away, she realized that the woman had been leading them here all along. She didn't know why exactly, but her determination was a determination to be here, in this moment, for some purpose.
+
+The door cut into the railcar creaked open and the man, Cliff, stepped through. He was older looking and paunchy, maybe even well fed. She stood and watched as Helena and the man talked for several minutes. At one point, the man's head dropped down and she touched his shoulder. The moment passed quickly though as Helena turned and walked back towards her.
